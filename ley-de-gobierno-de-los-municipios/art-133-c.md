@@ -10,5 +10,8 @@ VII.- Elaborar y aplicar planes de desarrollo urbano;
 VIII.- Gestionar las demandas comunes ante los gobiernos federal y estatal;
 IX.- La atracción de inversiones detonantes del desarrollo regional;
 X.- La contratación de Proyectos de Prestación de Servicios;
-XI.- Realizar programas de seguridad pública, y
-XII.- Las demás que tiendan a promover el bienestar y progreso de su población.
+(REFORMADA, D.O. 11 DE MAYO DE 2026)
+XI. Realizar programas de seguridad pública;
+(ADICIONADA, D.O. 11 DE MAYO DE 2026)
+XII. Realizar programas de Prevención Social de la Violencia y el Delito y Participación Ciudadana, y
+XIII.- Las demás que tiendan a promover el bienestar y progreso de su población.

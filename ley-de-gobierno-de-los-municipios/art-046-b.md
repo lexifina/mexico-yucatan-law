@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 11 DE MAYO DE 2026)
+Artículo 46 B.- Es obligación del Ayuntamiento, en materia de protección de los derechos de niñas, niños y adolescentes establecer un Sistema municipal de protección integral de niñas, niños y adolescentes.
+Sin perjuicio del sistema, y de acuerdo a la capacidad presupuestal, se implementará una unidad o instancia administrativa especializada encargada de ejercer las competencias y formular el Protocolo de actuación para garantizar la protección de los derechos de las niñas, niños y adolescentes en términos del artículo 30 de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Yucatán.

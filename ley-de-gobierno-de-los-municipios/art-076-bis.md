@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 11 DE MAYO DE 2026)
+Artículo 76 bis.- La Unidad Municipal de Prevención Social de la Violencia y el Delito y Participación Ciudadana, tiene por objeto planear, diseñar, implementar, coordinar, supervisar, evaluar, difundir y promover políticas públicas, programas y acciones orientadas a disminuir factores de riesgo que favorezcan la generación de violencia y delincuencia, así como promover la participación ciudadana en sus acciones, la cultura de paz, la legalidad, la prevención del delito y el respeto a los derechos humanos, en el municipio.
