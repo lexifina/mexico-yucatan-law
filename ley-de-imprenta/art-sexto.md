@@ -1,0 +1,1 @@
+ARTICULO SEXTO.- En ningún caso podrá considerarse delictuosa la crítica para un funcionario o empleado público si son ciertos los hechos en que se apoya, y si las apreciaciones que con motivo de ella se hacen son racionales y están motivadas por aquellos, siempre que no se viertan frases o palabras denigrantes o injuriosas.

@@ -1,0 +1,1 @@
+ARTICULO OCTAVO.- Se entiende que hay exitación a la anarquía, cuando se exite al robo, al asesinato, a la destrucción de los inmuebles por el uso de los explosivos o se haga la apología de estos delitos o de sus autores, como medio de lograr la destrucción de la reforma social existente.
