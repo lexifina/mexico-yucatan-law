@@ -11,5 +11,4 @@ Dado en el Palacio del Poder Ejecutivo del Estado, en Mérida, Yucatán, a los 1
 H. CANTO E.
 El Secretario General
 Gonzalo López M.
-}
 N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
