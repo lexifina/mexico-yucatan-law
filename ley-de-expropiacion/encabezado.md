@@ -1,5 +1,5 @@
 LEY DE EXPROPIACION
-Ley publicada en el Diario Oficial el lunes 13 de Octubre de 1938.
+Ley publicada en el Diario Oficial el 13 de Octubre de 1938.
 GOBIERNO SOCIALISTA DEL ESTADO DE YUCATAN.
 LEY DE EXPROPIACION
 DECRETO NUM. 91.
