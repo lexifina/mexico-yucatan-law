@@ -5,5 +5,5 @@ Que el H. Congreso del mismo, ha expedido el siguiente
 DECRETO NUM. 3
 "(SIC) El XXV Congreso Constitucional del Estado Libre y Soberano de Yucatán, en funciones de Constituyente, a nombre y con la autoridad del pueblo yucateco ha tenido a bien expedir la siguiente:
 CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE YUCATAN
-TITULO PRELIMINAR.
-De los habitantes del Estado.
+TITULO PRELIMINAR
+De los habitantes del Estado
