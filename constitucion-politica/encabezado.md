@@ -4,6 +4,8 @@ General Salvador Alvarado, Gobernador del Estado de Yucatán, a sus habitantes h
 Que el H. Congreso del mismo, ha expedido el siguiente
 DECRETO NUM. 3
 "(SIC) El XXV Congreso Constitucional del Estado Libre y Soberano de Yucatán, en funciones de Constituyente, a nombre y con la autoridad del pueblo yucateco ha tenido a bien expedir la siguiente:
+N. DE E. EL XXXIV CONGRESO CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE YUCATÁN APROBÓ EL DECRETO NÚM. 67 QUE REFORMA LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE YUCATÁN, MODIFICANDO DE MANERA SUSTANCIAL EL TEXTO QUE A LA FECHA TENÍA DICHO ORDENAMIENTO, PRESENTÁNDOSE POR TAL MOTIVO EL TEXTO APROBADO Y PUBLICADO EN EL DIARIO OFICIAL DEL ESTADO EL 4 DE JULIO DE 1938.
 CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE YUCATAN
+(REFORMADO, D.O. 4 DE JULIO DE 1938)
 TITULO PRELIMINAR
 De los habitantes del Estado
