@@ -1,0 +1,5 @@
+D.O. 12 DE JULIO DE 1946.
+Primero.- Las disposiciones del Código Civil reformadas por este Decreto se aplicarán desde luego a todos los contratos de arrendamiento vigentes que no hubieren sido materia de controversia judicial.
+Segundo.- Los avisos o notificaciones que se hubieren hecho de conformidad con el tenor de los artículos 1582, y 1595 del Código Civil antes de este Decreto, para la terminación de arrendamiento, no producirán este efecto sino hasta que se venza el nuevo término fijado en dichos preceptos legales como aparecen reformados por esta Ley.
+Tercero.- La substanciación de los procedimientos de arrendamiento pendientes se sujetará a las disposiciones del Código de Procedimientos Civiles vigente en la fecha de la publicación de este Decreto.
+Cuarto.- En aquellos juicios en que no se hubiere dictado aun sentencia de primera instancia se aplicará el artículo 576 del Código de Procedimientos Civiles en los términos en que queda concebido por virtud de la reforma de que ha sido objeto.
