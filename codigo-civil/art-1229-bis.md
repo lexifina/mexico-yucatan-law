@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 30 DE DICIEMBRE DE 2002)
+Artículo 1229-Bis.- Las instituciones del sistema bancario mexicano, actuando en nombre propio o como fiduciarias, las demás entidades financieras y los Institutos de Seguridad Social, podrán ceder sus créditos con garantía hipotecaria sin necesidad de notificación al deudor, de escritura pública ni de inscripción en el Registro Público de la Propiedad del Estado, siempre que conserven la administración de los créditos.
+En los supuestos previstos en el párrafo anterior, la inscripción de la hipoteca a favor del acreedor original, se considerará hecha a favor de él o los cesionarios referidos en tal párrafo, quienes tendrán todos los derechos y acciones derivados de ésta.
+En caso de que las mencionadas instituciones, entidades e institutos dejen de llevar la administración de los créditos, el cesionario deberá notificar por escrito la cesión al deudor.
