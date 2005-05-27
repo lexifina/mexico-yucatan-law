@@ -1,0 +1,8 @@
+D.O. 26 DE MAYO DE 2005.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente al de su publicación, en el Diario Oficial del Gobierno del Estado.
+ARTÍCULO SEGUNDO.- Todas aquellas disposiciones del presente Decreto, que requieran para su cumplimiento la regulación de la ley que organiza y reglamenta a los Ayuntamientos del Estado, entrarán en vigor una vez expedida y (sic) publicada las reformas a dicha ley, lo cual deberá realizarse antes del primero de enero de 2006.
+Las demás disposiciones legales que requieran ser adecuadas, deberán ser expedidas y publicadas en forma subsecuente.
+ARTÍCULO TERCERO.- Las fechas de presentación al Congreso, de las respectivas leyes de ingresos municipales, dispuesto (sic) en este Decreto, aplicarán a partir del Ejercicio Fiscal 2007.
+ARTÍCULO CUARTO.- Los Ayuntamientos no podrán celebrar los actos, convenios o empréstitos, que comprometan el patrimonio municipal, más allá del período de gestión y hasta en tanto, no se establezcan las modalidades reglamentarias que precisen su alcance.
+ARTÍCULO QUINTO.- Para los efectos de lo dispuesto por el párrafo segundo del Artículo 108 de esta Constitución, por esta única vez, los municipios no formarán parte del Constituyente Permanente, instituido en la presente reforma.
+ARTÍCULO SEXTO.- El Congreso atendiendo a lo dispuesto en los artículos primero y segundo transitorios, a través de la Gran Comisión, implementará mecanismos de difusión sobre los alcances de la presente reforma, entre los demás Poderes, las autoridades municipales, instituciones académicas, de profesionales y otras de la sociedad organizada; con el propósito de contar con dicho ordenamiento reglamentario en lo que queda del presente año.
