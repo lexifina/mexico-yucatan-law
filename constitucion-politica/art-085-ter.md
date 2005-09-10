@@ -14,6 +14,6 @@ XI.- Creación y Administración de Reservas Territoriales;
 XII.- Desarrollo Económico, en todas sus vertientes, y
 XIII.- Desarrollo Social.
 Los municipios podrán celebrar convenios con el Ejecutivo del Estado, a fin de que éstos asuman alguna de las funciones o los servicios cuya responsabilidad sea originaria del Estado, trasladándose a favor del municipio los medios para su adecuada prestación así como la contraprestación a cargo de los usuarios del servicio o función de que se trate.
-(REFORMADA SU DENOMINACION, D.O. 31 DE MARZO DE 1988) (F. DE E., D.O. 5 DE ABRIL DE 1988)
-TITULO OCTAVO
+(REUBICADO [N. DE E. ANTES TITULO OCTAVO], D.O. 9 DE SEPTIEMBRE DE 2005)
+TITULO NOVENO
 De la Función del Estado, como Forma de Convivencia y de su Desarrollo Integral
