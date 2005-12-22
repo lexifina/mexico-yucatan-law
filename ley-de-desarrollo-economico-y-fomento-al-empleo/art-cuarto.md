@@ -1,0 +1,1 @@
+Artículo Cuarto.- A fin de dar cumplimiento a lo dispuesto en los artículos 11 y 12 de esta Ley, el Titular del Poder Ejecutivo contará con un plazo de 60 días hábiles, a partir de la entrada en vigor de la presente Ley, previendo las medidas necesarias para la conformación del Consejo Estatal Consultivo para el Desarrollo Económico.
