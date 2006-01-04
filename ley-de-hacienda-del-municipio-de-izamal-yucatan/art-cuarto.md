@@ -1,0 +1,1 @@
+Artículo Cuarto.- El cobro de los derechos por los servicios de cementerios, alumbrado público y agua potable, podrán ser realizados una vez celebrado el convenio de transferencia respectivo entre el Municipio y el Gobierno del Estado.

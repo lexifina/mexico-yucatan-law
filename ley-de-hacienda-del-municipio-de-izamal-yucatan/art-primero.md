@@ -1,0 +1,1 @@
+Artículo Primero.- Se aprueban las Leyes de Hacienda de los Municipios de: Acanceh, que contiene 154 artículos; Izamal, que contiene 164 artículos; Oxkutzcab, que contiene 163 artículos; Tecoh, que contiene 165 artículos; y Ticul, que contiene 160 artículos; todos del Estado de Yucatán.
