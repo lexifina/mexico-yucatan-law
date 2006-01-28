@@ -1,0 +1,1 @@
+ARTÍCULO OCTAVO.- Al término del período constitucional de las actuales administraciones municipales y para efecto de la Comisión de Entrega-Recepción, ésta deberá conformarse en el mes de junio de 2007, y los Tesoreros de los Ayuntamientos salientes, harán las funciones del Síndico en el procedimiento de entrega-recepción.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- El Congreso del Estado de Yucatán, por única vez determinará el número de Regidores de mayoría relativa y de representación proporcional que corresponde a cada Municipio, en el mes de abril de 2006.

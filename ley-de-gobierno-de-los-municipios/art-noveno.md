@@ -1,0 +1,1 @@
+ARTÍCULO NOVENO.- Los Ayuntamientos convendrán con el Ejecutivo del Estado, las condiciones para regular las facultades concurrentes en materia de regulación de bebidas alcohólicas y preservación del medio ambiente.
