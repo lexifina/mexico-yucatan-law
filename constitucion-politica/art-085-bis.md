@@ -8,7 +8,7 @@ V.- Panteones;
 VI.- Rastro;
 VII.- Calles, parques y jardines y su equipamiento;
 VIII.- Seguridad pública, en los términos del artículo 21 de la Constitución Política de los Estados Unidos Mexicanos, policía preventiva municipal y tránsito, que estarán al mando del Presidente Municipal, en los términos del Reglamento correspondiente;
-IX.- El servicio público y privado de transporte de personas y de carga;
+IX.- (DEROGADA, D.O. 31 DE AGOSTO DE 2006)
 X.- El Catastro, y
 XI.- La autorización del uso del suelo y funcionamiento de establecimientos mercantiles.
 Por acuerdo de las dos terceras partes de sus integrantes, los ayuntamientos podrán convenir que el Gobierno del Estado se haga cargo temporalmente de alguno de los servicios que son de su competencia exclusiva o que éstos se presten de manera coordinada. Los convenios no podrán exceder del período constitucional del Ayuntamiento, pudiendo ser renovados hasta que el municipio esté en aptitud de asumir su competencia exclusiva, reservándose al municipio, en todo caso, la facultad reglamentaria en la materia del servicio de que se trate.
