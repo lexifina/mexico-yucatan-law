@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO.- Se abroga el Decreto número 205, publicado en el Diario Oficial del Estado de Yucatán, el día 31 de Diciembre del año 2002, correspondiente a la Ley de Hacienda para el Municipio de Tixméhuac, Yucatán, de fecha treinta de diciembre del año dos mil dos.
