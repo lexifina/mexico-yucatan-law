@@ -1,0 +1,1 @@
+Artículo Primero.- Se abroga el Decreto número 646, publicado en el Diario Oficial del Gobierno del Estado de Yucatán, el día 3 de enero del año 2006, que contiene la Ley de Hacienda para el Municipio de Mayapán, Yucatán.
