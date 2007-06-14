@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 13 DE JUNIO DE 2007)
+Artículo 2168 BIS.- El reglamento del Registro Público de la Propiedad, que expida el ejecutivo del Estado, organizará el funcionamiento de la oficina que preste dicho servicio, así como los sistemas y el método registrales para lo cual podrá utilizar los distintos recurso (sic) tecnológicos.
+El Ejecutivo del Estado, determinará la ubicación y el número de oficinas registrales, que se establezcan en el Estado.
+El reglamento del Registro Público organizará la institución y determinará el número de autoridades, su jerarquía, atribuciones y deberes. Igualmente fijará y nominará las secciones en las que se componga el Registro, precisará los títulos que deban inscribirse en cada una de ellas, el número de libros y sus correspondientes requisitos, y determinará el sistema y método mediante los cuales funcionará.
