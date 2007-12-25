@@ -1,0 +1,1 @@
+ARTÍCULO PRIMERO.- El presente Decreto y las Leyes contenidas en él, entrarán en vigor el día primero de enero del año dos mil ocho previa su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
