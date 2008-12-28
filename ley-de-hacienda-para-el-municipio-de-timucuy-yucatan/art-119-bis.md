@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 27 DE DICIEMBRE DE 2008)
+Artículo 119 Bis.- Para efectos del cobro de este derecho el Ayuntamiento podrá celebrar convenios con la compañía o empresa suministradora del servicio de energía eléctrica en el municipio. En estos casos, se deberá incluir el importe de este derecho en el documento que para tal efecto expida la compañía o la empresa, debiéndose pagar junto con el consumo de energía eléctrica, en el plazo y en las oficinas autorizadas por esta última.

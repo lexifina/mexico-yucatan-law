@@ -14,3 +14,4 @@ OFICIAL MAYOR
 (RÚBRICA)
 Q.I. RAÚL ARCEO ALONZO
 Quienes firman por la ausencia temporal del C. Gobernador del Estado, de conformidad a lo dispuesto por el artículo 25 de la Ley Orgánica de la Administración Pública del Estado de Yucatán.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

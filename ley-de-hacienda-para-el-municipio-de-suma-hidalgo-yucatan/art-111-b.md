@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 27 DE DICIEMBRE DE 2008)
+ARTÍCULO 111 B.- Es objeto de este derecho la prestación del servicio de alumbrado público para los habitantes del Municipio. Se entiende por servicio de alumbrado público, el que el Municipio otorga a la comunidad, en calles, plazas, jardines y otros lugares de uso común.
