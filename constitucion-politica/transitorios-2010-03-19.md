@@ -1,0 +1,12 @@
+D.O. 19 DE MARZO DE 2010.
+ARTÍCULO PRIMERO.- Este Decreto entrará en vigor a los 30 días siguientes a los de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+ARTÍCULO SEGUNDO.- El Congreso del Estado deberá emitir la convocatoria para elegir al Auditor Superior del Estado, dentro de los 90 días naturales siguientes contados a partir de la publicación de este Decreto.
+En tanto el Congreso del Estado designa al Auditor Superior del Estado, ocupará el cargo en calidad de encargado del despacho, el Contador Mayor de Hacienda del Estado de Yucatán en funciones.
+ARTÍCULO TERCERO.- La legislación secundaria en materias de fiscalización, presupuestación, contabilidad gubernamental y evaluación, a las que se refiere esta reforma Constitucional, deberá promulgarse dentro de los noventa días naturales siguientes contados a partir de la publicación de este Decreto.
+ARTÍCULO CUARTO.- Una vez que entre en funciones la Auditoría Superior del Estado, todos los recursos humanos, materiales y patrimoniales de la Contaduría Mayor de Hacienda, pasarán a formar parte de dicho Órgano.
+ARTÍCULO QUINTO.- Los servidores públicos y empleados de la Contaduría Mayor de Hacienda no podrán ser afectados en sus derechos y prestaciones laborales con motivo de la entrada en vigor de este Decreto y de las leyes que en consecuencia se emitan.
+ARTÍCULO SEXTO.- Para efectos de la creación del Órgano de Evaluación previsto en el párrafo segundo del artículo 107, de este Decreto, el Congreso del Estado deberá expedir la Legislación correspondiente.
+ARTÍCULO SÉPTIMO.- Se derogan todas las disposiciones legales que se contrapongan a lo dispuesto por este Decreto.
+ARTÍCULO OCTAVO.- Remítase el presente proyecto de Decreto a los Ayuntamientos del Estado, para efectos de lo establecido en el artículo 108 de la Constitución Política del Estado de Yucatán.
+ARTÍCULO NOVENO.- Los Ayuntamientos contarán con noventa días naturales, contados a partir del día siguiente a aquel en que reciban el presente Decreto, para remitir al Congreso del Estado, el acuerdo de Cabildo que señale la conformidad o inconformidad con el mismo.
+ARTÍCULO DÉCIMO.- La Oficialía Mayor del Congreso del Estado remitirá este Decreto a los Ayuntamientos del Estado, a partir de su aprobación por el Pleno del Congreso, y deberá informar al Presidente del Congreso o de la Diputación Permanente, para efectos del cómputo correspondiente.
