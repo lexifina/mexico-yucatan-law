@@ -1,0 +1,1 @@
+ARTÍCULO DÉCIMO.- En tanto se expide la reglamentación que establece esta Ley, se aplicarán las disposiciones de la Ley Orgánica del Poder Legislativo del Estado de Yucatán abrogada, para efecto de todo lo relativo a trámites, procedimientos, votaciones y demás asuntos legislativos que no se oponga a lo establecido por esta Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- La LIX Legislatura concluirá el 31 de agosto de 2012, según lo dispuesto en el artículo noveno transitorio del Decreto número 677 por el que se reforman y adicionan diversos artículos de la Constitución Política del Estado de Yucatán, publicado en fecha 24 de mayo de 2006, en el Diario Oficial del Gobierno del Estado de Yucatán.

@@ -1,0 +1,2 @@
+ARTÍCULO OCTAVO.- La Mesa Directiva en funciones que se encuentre al momento de entrar en vigor esta Ley, continuará hasta concluir el periodo ordinario o Diputación Permanente correspondiente.
+El Presidente de la Mesa Directiva por única ocasión, realizará el turno de las iniciativas y asuntos legislativos pendientes a las Comisiones Permanentes creadas por esta Ley, de manera directa, por escrito y en base a las atribuciones de cada Comisión.

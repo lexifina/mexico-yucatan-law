@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley Orgánica del Poder Legislativo del Estado de Yucatán, contenida en el Decreto número 6, publicada en el Diario Oficial del Gobierno del Estado el 24 de febrero del año 1988.
