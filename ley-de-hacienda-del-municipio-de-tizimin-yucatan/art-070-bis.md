@@ -1,0 +1,3 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO UNICO DEL DECRETO QUE MODIFICA LA LEY.
+(ADICIONADO, D.O. 28 DE DICIEMBRE DE 2010)
+Artículo 70 bis.- La Dirección de Finanzas y Tesorería podrá establecer programas de estímulo que incentiven el cumplimiento de la obligación de pago de los contribuyentes por derechos de revalidación de licencias de funcionamiento; entre dichos programas se podrá incluir la organización de loterías, sorteos o rifas fiscales con diversos premios, en los que participarán las personas que hayan cumplido con la obligación del pago a que se refiere el presente artículo, dentro de los dos meses siguientes a la fecha de expiración de su licencia anterior.
