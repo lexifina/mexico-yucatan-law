@@ -1,0 +1,11 @@
+(ADICIONADO, D.O. 6 DE JULIO DE 2004)
+ARTÍCULO 284-BIS. Se impondrá de cuatro a diez años de prisión y de ciento cincuenta a quinientos días-multa al que:
+I. Produzca o imprima, sin estar legalmente autorizado, altere o falsifique tarjetas bancarias o comerciales y los documentos o pagares en los que se asientan las operaciones que con ellas se realizan para el pago de bienes y servicios o para disposición de numerario, o bien los use o los enajene o distribuya, aún gratuitamente;
+II. Adquiera, utilice, posea o detente indebidamente tarjetas bancarias o comerciales, documentos o pagarés en los que se asientan las operaciones que con ella se realizan y vales para el pago de bienes o servicios, a sabiendas de que son alterados o falsificados;
+III. Adquiera, utilice, posea o detente indebidamente, tarjetas bancarias o comerciales auténticas para el pago de bienes o servicios;
+IV. Altere los medios de identificación electrónica de tarjetas bancarias o comerciales, documentos o pagarés en los que se asientan las operaciones que con ellas se realizan y vales para el pago de bienes o servicios;
+V. Acceda indebidamente a los equipos de electrónicos de las instituciones emisoras de tarjetas bancarias o comerciales y vales para el pago de bienes o servicios o para disposición de efectivo, con el fin de utilizarlos u obtener información con fines indebidos, y
+VI. Al que sin causa legal adquiera, utilice o posea equipos electromagnéticos que sirvan para sustentar la información contenida en la cinta o banda magnética de tarjetas bancarias o comerciales, títulos o documentos para el pago de bienes y servicios o disposición de efectivo, así como a quien posea o utilice indebidamente la información sustraída en esta forma.
+Las mismas penas se impondrán a quien utilice indebidamente información confidencial o reservada de la institución o persona que legalmente esté facultada para emitir tarjetas bancarias o comerciales y vales utilizados para el pago de bienes y servicios.
+Si el sujeto activo es empleado o dependiente del ofendido, las penas se aumentarán en una mitad.
+En el caso de que se actualicen otros delitos con motivo de las conductas a que se refiere este artículo se aplicarán las reglas del concurso.

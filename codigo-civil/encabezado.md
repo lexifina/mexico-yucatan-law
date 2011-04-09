@@ -1,4 +1,4 @@
-CODIGO CIVIL DEL ESTADO DE YUCATAN
+CÓDIGO CIVIL DEL ESTADO DE YUCATÁN
 Código publicado en el Suplemento del Diario Oficial del Estado de Yucatán, el viernes 31 de diciembre de 1993.
 Gobierno Del Estado
 Poder Ejecutivo

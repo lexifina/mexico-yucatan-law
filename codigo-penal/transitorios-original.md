@@ -1,19 +1,13 @@
-TRANSITORIOS.
-PRIMERO.- Esta Ley entrará en vigor al día siguiente de su publicación en el Periódico oficial "El Estado de Jalisco".
-SEGUNDO.- Se derogan las disposiciones que se opongan a la presente Ley.
-TERCERO.- En tanto se expiden las disposiciones reglamentarias, administrativas y técnicas que se deriven de esta Ley, continuarán aplicándose los reglamentos y acuerdos que sobre la materia se hubieren expedido con anterioridad en todo lo que no se oponga a este ordenamiento.
-CUARTO.- Se concede un plazo mínimo de sesenta días hábiles para que el Gobernador del Estado expida las disposiciones reglamentarias administrativas y técnicas a que se refiere el transitorio anterior.
-SALON DE SESIONES DEL CONGRESO DEL ESTADO GUADALAJARA, JALISCO, 30 DE NOVIEMBRE DE 2000
-DIPUTADO PRESIDENTE
-CARLOS ALBERTO GALLEGOS GARCIA
-DIPUTADO SECRETARIO
-MARIA GUADALUPE SALINAS AGUILA
-DIPUTADO SECRETARIO
-FRANCISCO JAVIER BRAVO CARBAJAL
-En mérito de lo anterior, mando se imprima, publique, divulgue y se le dé el debido cumplimiento.
-Emitido en Palacio de Gobierno, sede del Poder Ejecutivo del Estado Libre y Soberano de Jalisco, a los 08 ocho días del mes de diciembre de 2000 dos mil.
-EL GOBERNADOR CONSTITUCIONAL DEL ESTADO
-ING. ALBERTO CARDENAS JIMENEZ
+ARTÍCULOS TRANSITORIOS
+PRIMERO. Este Código entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado.
+SEGUNDO. Se abroga el Código de Defensa Social del Estado de Yucatán, publicado el tres de diciembre de mil novecientos ochenta y siete en el Diario Oficial del Gobierno del Estado, mediante Decreto Número 486, así como sus reformas y adiciones.
+TERCERO. Se continuará aplicando el Código que se abroga por hechos u omisiones ejecutados durante su vigencia, a menos que conforme a este nuevo Código hayan dejado de considerarse como delitos o que deba aplicarse la Ley más favorable.
+DADO EN LA SEDE DEL RECINTO DEL PODER LEGISLATIVO, EN LA CIUDAD DE MÉRIDA, YUCATÁN, ESTADOS UNIDOS MEXICANOS A LOS VEINTIOCHO DÍAS DEL MES DE MARZO DEL AÑO DOS MIL. PRESIDENTA DIP. Q.F.B. LUCELY ALPIZAR CARRILLO.- SECRETARIO DIP. C. WILLIAM RENAN SOSA ALTAMIRA.- SECRETARIO DIP. P.D. SERGIO AUGUSTO CHAN LUGO.- RUBRICAS".
+Y POR TANTO, MANDO SE IMPRIMA, PUBLIQUE Y CIRCULE PARA SU CONOCIMIENTO Y DEBIDO CUMPLIMIENTO.
+DADO EN LA SEDE DEL RECINTO DEL PODER EJECUTIVO, EN LA CIUDAD DE MÉRIDA, YUCATÁN, ESTADOS UNIDOS MEXICANOS, A LOS VEINTINUEVE DÍAS DEL MES DE MARZO DEL AÑO DOS MIL.
+C. VÍCTOR MANUEL CERVERA PACHECO
 EL SECRETARIO GENERAL DE GOBIERNO
-LIC. FELIPE DE JESÚS PRECIADO CORONADO
-N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
+ABOG. R. CLEOMINIO ZOREDA NOVELO
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CODIGO.
+D.O. 1 DICIEMBRE DE 2003.
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
