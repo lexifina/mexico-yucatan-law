@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 17 DE AGOSTO DE 2011)
+Artículo 29 C.- El Ayuntamiento, dentro de los quince días hábiles siguientes a la terminación del procedimiento establecido en el artículo anterior, deberá poner a disposición el expediente de entrega recepción a la Auditoría Superior del Estado, para efecto de que en la revisión de las cuentas públicas municipales, sea tomado en consideración para los efectos conducentes.

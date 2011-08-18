@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 17 DE AGOSTO DE 2011)
+Artículo 47 B.- Es obligación de los ayuntamientos en materia de Hacienda Pública, vigilar que los establecimientos, giros comerciales y demás que deban tener licencia de funcionamiento, cuenten con ella, y en caso contrario podrán clausurarlos previa notificación realizada por escrito en la que se informe del plazo para subsanar la omisión de este requisito de funcionamiento.

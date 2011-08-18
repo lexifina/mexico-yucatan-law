@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 17 DE AGOSTO DE 2011)
+Artículo 202 A.- Si el juez de paz fuere mediador no podrá ejercer la mediación durante el tiempo que dure su encargo, pero si podrá utilizar la conciliación y hacer propuestas a las partes, en los mismos términos y reglas que señala la Ley de Mecanismos Alternativos de Solución de Controversias en el Estado de Yucatán, debiendo ser ratificado el acuerdo o convenio que se firme ante el Centro Estatal de Solución de Controversias.

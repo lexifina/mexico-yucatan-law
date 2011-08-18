@@ -1,0 +1,6 @@
+(ADICIONADO, D.O. 17 DE AGOSTO DE 2011)
+Artículo 133-D.- Para los efectos del artículo anterior, se podrán firmar los siguientes tipos de convenio:
+I.- Convenio de coordinación: será aquel que tenga por objeto la colaboración interinstitucional para mejorar la comunicación, capacitación, información y desarrollo del servicio público o la función de que se trate, sin que ninguna de las partes ceda a la otra todo o parte de la prestación del servicio o la función pública correspondiente;
+II.- Convenio de asociación por mandato específico: será aquel en el que una parte encarga a la otra la prestación de un servicio público a su cargo o el ejercicio de una función, cediéndole en consecuencia todo o parte de las atribuciones y facultades relativas al servicio o función pública de que se trate, y
+III.- Convenio de asociación con objeto común: será aquél en el que las partes se propongan prestar uno o más servicios públicos o realizar una o más de sus funciones de manera conjunta, para lo cual crearán un organismo descentralizado en los términos del acuerdo al que lleguen las partes.
+La asociación, coordinación, contratación y cualquier acto de los municipios en su carácter de personas jurídicas de derecho privado, se realizará conforme a las normas del derecho común.

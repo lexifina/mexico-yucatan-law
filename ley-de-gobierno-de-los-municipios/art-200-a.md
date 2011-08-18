@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 17 DE AGOSTO DE 2011)
+Artículo 200 A.- Los jueces de Paz tendrán competencia para conocer de asuntos solamente Civiles en términos de lo que dispone la Ley Orgánica del Poder Judicial del Estado, y de los que establece el Código de Procedimientos Civiles de Yucatán, debiendo respetar en todo momento el procedimiento judicial que en este rige y las garantías constitucionales de las partes del proceso.
