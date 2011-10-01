@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 30 DE SEPTIEMBRE DE 2011)
+Artículo 68 bis.- El patrimonio del organismo público descentralizado se integra con las cuentas, bienes muebles e inmuebles destinados a la prestación de sus servicios, participaciones, subsidios, derechos por la prestación de servicios, donaciones, aportaciones extraordinarias y cualquier concepto similar a los anteriores. Dicho patrimonio será inembargable, imprescriptible e inalienable.
+Los ingresos que obtenga el organismo público descentralizado serán destinados exclusivamente al pago de los gastos de construcción, administración, operación, mantenimiento, rehabilitación y ampliación del servicio que realice, así como para la adquisición de instalaciones e infraestructuras propias para la prestación de los servicios.

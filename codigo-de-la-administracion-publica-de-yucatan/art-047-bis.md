@@ -6,8 +6,10 @@ III.- Promover el equilibrio de los factores de la producción, para lo cual ser
 IV.- Promover la capacitación y el adiestramiento de los trabajadores con el fin de impulsar el desarrollo del Estado;
 V.- Dirigir y coordinar el Servicio Nacional de Empleo, Yucatán, así como las bolsas de trabajo de índole pública y vigilar su funcionamiento en el Estado;
 VI.- Organizar, dirigir, ordenar y supervisar, en el ámbito de su competencia, las visitas de verificación y de inspección que sean necesarias, para comprobar el cumplimiento de las disposiciones legales y reglamentarias en materia laboral y, en su caso, aplicar las sanciones administrativas que correspondan;
-VII.- Dirigir y coordinar la Procuraduría Local de la Defensa del Trabajo, así como vigilar su correcto funcionamiento;
-VIII.- Conducir las relaciones del Poder Ejecutivo con la Junta Local de Conciliación y Arbitraje y con el Tribunal de Conciliación y Arbitraje para los Trabajadores al Servicio del Estado, con miras a la eficacia de los mismos, proporcionándoles el apoyo administrativo que para su funcionamiento requieran, sin perjuicio de su autonomía jurisdiccional;
+(REFORMADA, D.O. 30 DE SEPTIEMBRE DE 2011)
+VII.- Dirigir y coordinar a las Procuradurías, Local de la Defensa del Trabajo del Estado y de la Defensa de los Trabajadores al Servicio del Estado y Municipios, así como vigilar su correcto funcionamiento;
+(REFORMADA, D.O. 30 DE SEPTIEMBRE DE 2011)
+VIII.- Conducir las relaciones del Poder Ejecutivo del Estado con la Junta Local de Conciliación y Arbitraje del Estado de Yucatán, con miras a la eficacia de los mismos, proporcionándoles el apoyo administrativo que para su funcionamiento requieran, sin perjuicio de su autonomía jurisdiccional;
 IX.- Mantener actualizadas y vigilar el cumplimiento de las normas relativas a la seguridad, higiene y medio ambiente en el trabajo;
 X.- Vigilar el cumplimiento de las normas relativas a la capacitación y adiestramiento de los trabajadores, así como elaborar y ejecutar programas de capacitación laboral en el Estado;
 XI.- Revisar, previa solicitud de la parte interesada, el contenido de los contratos colectivos de trabajo;
@@ -21,9 +23,3 @@ XVIII.- Aportar a las autoridades federales del trabajo, la información que sol
 XIX.- Mediar y conciliar, a solicitud de la parte interesada o cuando la situación lo amerite, en los conflictos que surjan de presuntas violaciones a las leyes laborales, contratos colectivos de trabajo o a las condiciones generales de trabajo;
 XX.- Fomentar y apoyar la organización social para el trabajo y autoempleo, y
 XXI.- Aplicar las disposiciones que por Ley, Decreto, Acuerdo o Convenio se le confieran, así como aquellas que le asigne el Gobernador del Estado.
-LIBRO TERCERO
-DE LA ADMINISTRACIÓN PÚBLICA PARAESTATAL
-TÍTULO I
-DE LAS ENTIDADES PARAESTATALES
-CAPÍTULO ÚNICO
-Disposiciones Comunes
