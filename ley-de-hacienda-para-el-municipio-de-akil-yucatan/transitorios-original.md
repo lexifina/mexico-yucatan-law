@@ -1,0 +1,14 @@
+Transitorios:
+Artículo Primero.- Esta Ley entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+Artículo Segundo.- En lo no previsto por esta Ley, se aplicará supletoriamente lo establecido por el Código Fiscal y la Ley General de Hacienda para los Municipios, ambas del Estado de Yucatán.
+TRANSITORIO:
+ARTÍCULO ÚNICO.- El presente decreto y las leyes contenidas en él, entrarán en vigor el día primero de enero del año dos mil doce, previa su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+DADO EN LA SEDE DEL RECINTO DEL PODER LEGISLATIVO, EN LA CIUDAD DE MÉRIDA, YUCATÁN, ESTADOS UNIDOS MEXICANOS A LOS TRECE DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL ONCE.- PRESIDENTE: DIPUTADO CARLOS GERMÁN PAVÓN FLORES.- SECRETARIO.- DIPUTADO PEDRO FRANCISCO COUOH SUASTE.- SECRETARIA.- DIPUTADA LETICIA DOLORES MENDOZA ALCOCER.- RÚBRICAS."
+Y, POR TANTO, MANDO SE IMPRIMA, PUBLIQUE Y CIRCULE PARA SU CONOCIMIENTO Y DEBIDO CUMPLIMIENTO.
+EXPEDIDO EN LA SEDE DEL PODER EJECUTIVO, EN LA CIUDAD DE MÉRIDA, CAPITAL DEL ESTADO DE YUCATÁN, ESTADOS UNIDOS MEXICANOS, A LOS QUINCE DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL ONCE.
+(RÚBRICA)
+C. IVONNE ARACELLY ORTEGA PACHECO
+GOBERNADORA DEL ESTADO DE YUCATÁN
+(RÚBRICA)
+C. VÍCTOR MANUEL SÁNCHEZ ÁLVAREZ
+SECRETARIO GENERAL DE GOBIERNO
