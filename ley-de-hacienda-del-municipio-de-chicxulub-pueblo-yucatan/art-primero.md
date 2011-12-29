@@ -1,0 +1,1 @@
+Artículo Primero.- Los sujetos obligados por esta Ley deberán contar con licencia de funcionamiento y tramitar su obtención ante la Tesorería Municipal en un plazo de 4 meses contados a partir de la entrada en vigor del presente ordenamiento.
