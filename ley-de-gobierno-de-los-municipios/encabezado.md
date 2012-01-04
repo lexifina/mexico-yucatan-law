@@ -1,4 +1,4 @@
-LEY DE GOBIERNO DE LOS MUNICIPIOS DEL ESTADO DE YUCATAN
+LEY DE GOBIERNO DE LOS MUNICIPIOS DEL ESTADO DE YUCATÁN
 Ley publicada en el Suplemento del Diario Oficial del Estado de Yucatán, el miércoles 25 de enero de 2006.
 GOBIERNO DEL ESTADO
 PODER EJECUTIVO
