@@ -7,7 +7,7 @@ IV.- Mercados y Centrales de Abasto;
 V.- Panteones;
 VI.- Rastro;
 VII.- Calles, parques y jardines y su equipamiento;
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCION, VEASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA CONSTITUCION.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA CONSTITUCIÓN.
 (REFORMADA, D.O. 17 DE MAYO DE 2010)
 VIII.- Seguridad pública, en los términos del artículo 21 de la Constitución Política de los Estados Unidos Mexicanos, policía preventiva municipal y tránsito, que estarán al mando del Presidente Municipal, en los términos de la ley en materia de seguridad pública del Estado y demás disposiciones aplicables;
 IX.- (DEROGADA, D.O. 31 DE AGOSTO DE 2006)
