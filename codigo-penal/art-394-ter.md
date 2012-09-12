@@ -1,3 +1,3 @@
 N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO UNICO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
 (ADICIONADO, D.O. 23 DE JULIO DE 2008)
-ARTÍCULO 394-TER. Si la inseminación se realiza con violencia se incrementará la sanción correspondiente en una mitad.
+ARTÍCULO 394 TER. Si la inseminación se realiza con violencia se incrementará la sanción correspondiente en una mitad.
