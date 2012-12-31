@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Hacienda del Municipio de Mérida de fecha veintitrés de diciembre de mil novecientos noventa y nueve, promulgada mediante decreto número 241, y publicada en el Diario Oficial del Gobierno del Estado el día treinta de ese mismo mes y año.
