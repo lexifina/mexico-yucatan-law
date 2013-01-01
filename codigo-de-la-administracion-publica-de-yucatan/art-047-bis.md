@@ -14,7 +14,9 @@ IX.- Mantener actualizadas y vigilar el cumplimiento de las normas relativas a l
 X.- Vigilar el cumplimiento de las normas relativas a la capacitación y adiestramiento de los trabajadores, así como elaborar y ejecutar programas de capacitación laboral en el Estado;
 XI.- Revisar, previa solicitud de la parte interesada, el contenido de los contratos colectivos de trabajo;
 XII.- Desarrollar y ejecutar programas en materia de trabajo, de conformidad con la normatividad aplicable;
-XIII.- Proponer al Comité de Planeación para el Desarrollo del Estado, políticas en materia laboral con visión regional y local que impulsen estrategias y líneas de acción que contribuyan a mejorar la productividad, la ocupación y el empleo, la capacitación y adiestramiento, la salud e higiene, y todas las medidas institucionales que persigan el fortalecimiento de la productividad en el Estado;
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADA, D.O. 5 DE DICIEMBRE DE 2012)
+XIII.- Proponer al Consejo Estatal de Planeación de Yucatán, políticas en materia laboral con visión regional y local que impulsen estrategias y líneas de acción que contribuyan a mejorar la productividad, la ocupación y el empleo, la capacitación y adiestramiento, la salud e higiene, y todas las medidas institucionales que persigan el fortalecimiento de la productividad en el Estado;
 XIV.- Instrumentar políticas y acciones que mejoren las condiciones laborales de las mujeres y los grupos en situación de vulnerabilidad en el Estado;
 XV.- Difundir a través de los medios de comunicación social las modificaciones que se den en las normas laborales y llevar las estadísticas en materia de trabajo y previsión social a nivel estatal;
 XVI.- Ejecutar los convenios y acuerdos que en materia de Trabajo suscriba el Poder Ejecutivo del Estado con la Federación y coadyuvar con la dependencia federal correspondiente, en la solución de los conflictos suscitados con motivo de Contratos-Ley de empresas asentadas en la Entidad;
@@ -23,3 +25,7 @@ XVIII.- Aportar a las autoridades federales del trabajo, la información que sol
 XIX.- Mediar y conciliar, a solicitud de la parte interesada o cuando la situación lo amerite, en los conflictos que surjan de presuntas violaciones a las leyes laborales, contratos colectivos de trabajo o a las condiciones generales de trabajo;
 XX.- Fomentar y apoyar la organización social para el trabajo y autoempleo, y
 XXI.- Aplicar las disposiciones que por Ley, Decreto, Acuerdo o Convenio se le confieran, así como aquellas que le asigne el Gobernador del Estado.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE CAPÍTULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, D.O. 5 DE DICIEMBRE DE 2012)
+CAPÍTULO XX
+De la Secretaría de la Cultura y las Artes

@@ -1,4 +1,4 @@
-CODIGO DE LA ADMINISTRACION PUBLICA DE YUCATAN
+CÓDIGO DE LA ADMINISTRACIÓN PÚBLICA DE YUCATÁN
 Código publicado en el Suplemento al Diario Oficial del Estado de Yucatán, el martes 16 de octubre de 2007.
 GOBIERNO DEL ESTADO
 DECRETO NÚMERO 21
