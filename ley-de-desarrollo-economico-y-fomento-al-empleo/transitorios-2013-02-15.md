@@ -1,0 +1,7 @@
+D.O. 15 DE FEBRERO DE 2013.
+Artículo Primero.- Este Decreto entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+Artículo Segundo.- El Titular del Poder Ejecutivo del Gobierno del Estado, deberá expedir las reformas al Reglamento de la Ley de Desarrollo Económico y Fomento al Empleo del Estado de Yucatán, dentro de un plazo de 90 días contados a partir de la entrada en vigor de este Decreto.
+Artículo Tercero.- Todo lo no previsto en este Decreto, se resolverá por acuerdo del Consejo Consultivo para el Desarrollo Económico de Yucatán, en tanto se expiden las disposiciones reglamentarias a que hace mención el artículo transitorio segundo.
+Artículo Cuarto.- Cuando en las leyes, reglamentos y demás instrumentos normativos o jurídicos emitidos con anterioridad a este Decreto se haga referencia al Consejo Estatal Consultivo para el Desarrollo Económico y/o Consejo Estatal Consultivo para el Desarrollo Económico y Fomento al Empleo, se entenderá que se refieren al Consejo Consultivo para el Desarrollo Económico de Yucatán, de conformidad con lo dispuesto en este Decreto.
+Artículo Quinto.- El Poder Ejecutivo del Gobierno del Estado implementará mecanismos que garanticen la existencia de recursos económicos para el beneficio de las empresas del Estado.
+Artículo Sexto.- Se derogan todas las disposiciones de igual o menor rango que se opongan a este Decreto.
