@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 20 DE FEBRERO DE 2015)
+Artículo 49 Bis.- Cuando en el transcurso de una legislatura se efectúen cambios en la Presidencia de una Comisión Permanente, el Presidente saliente transferirá al entrante, con auxilio de la Secretaría General, el inventario que contendrá la relación de iniciativas, minutas, proposiciones y demás asuntos que estén pendientes de ser considerados por el Pleno.
