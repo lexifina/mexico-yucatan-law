@@ -1,0 +1,5 @@
+ARTÍCULO 64 A.- El crédito fiscal se extingue por prescripción en el término de cinco años. El término de la prescripción se inicia a partir de la fecha en que la Dirección de Finanzas y Tesorería Municipal tenga conocimiento del supuesto de adquisición y se podrá oponer como excepción en los recursos administrativos. El término para que se consume la prescripción se interrumpe con cada gestión de cobro que la Dirección de Finanzas y Tesorería Municipal notifique o haga saber al adquirente o por el reconocimiento expreso o tácito de éste respecto de la existencia del crédito. Se considera gestión de cobro cualquier actuación de la autoridad dentro del procedimiento administrativo de ejecución, siempre que se haga del conocimiento del adquirente.
+Los adquirentes podrán solicitar a la autoridad la declaratoria de prescripción de los créditos fiscales.
+Sección Tercera
+Impuesto sobre Espectáculos y Diversiones Públicas
+De los sujetos
