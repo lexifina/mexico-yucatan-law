@@ -15,8 +15,8 @@ X.- Vigilar el cumplimiento de las normas relativas a la capacitación y adiestr
 XI.- Revisar, previa solicitud de la parte interesada, el contenido de los contratos colectivos de trabajo;
 XII.- Desarrollar y ejecutar programas en materia de trabajo, de conformidad con la normatividad aplicable;
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(REFORMADA, D.O. 5 DE DICIEMBRE DE 2012)
-XIII.- Proponer al Consejo Estatal de Planeación de Yucatán, políticas en materia laboral con visión regional y local que impulsen estrategias y líneas de acción que contribuyan a mejorar la productividad, la ocupación y el empleo, la capacitación y adiestramiento, la salud e higiene, y todas las medidas institucionales que persigan el fortalecimiento de la productividad en el Estado;
+(REFORMADA, D.O. 16 DE DICIEMBRE DE 2015)
+XIII.- Proponer políticas en materia laboral con visión regional y local que impulsen estrategias y líneas de acción que contribuyan a mejorar la productividad, la ocupación, el empleo, la capacitación, el adiestramiento, la salud e higiene, así como todas las medidas institucionales que persigan el fortalecimiento de la productividad en el estado;
 XIV.- Instrumentar políticas y acciones que mejoren las condiciones laborales de las mujeres y los grupos en situación de vulnerabilidad en el Estado;
 XV.- Difundir a través de los medios de comunicación social las modificaciones que se den en las normas laborales y llevar las estadísticas en materia de trabajo y previsión social a nivel estatal;
 XVI.- Ejecutar los convenios y acuerdos que en materia de Trabajo suscriba el Poder Ejecutivo del Estado con la Federación y coadyuvar con la dependencia federal correspondiente, en la solución de los conflictos suscitados con motivo de Contratos-Ley de empresas asentadas en la Entidad;
