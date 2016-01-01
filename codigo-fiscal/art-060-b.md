@@ -1,0 +1,5 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
+(ADICIONADO, D.O. 24 DE DICIEMBRE DE 2015)
+Artículo 60-B. Las autoridades fiscales podrán embargar y retirar las máquinas a las que se refiere el artículo 85-J de la Ley General de Hacienda del Estado de Yucatán, a quienes no realicen el pago del derecho previsto en el capítulo XXI de la referida ley o no adhieran o retiren a las máquinas de juegos el holograma previsto en su artículo 85-M.
+El embargo al que se refiere este artículo se practicará sin perjuicio de la aplicación de las sanciones y demás consecuencias legales que correspondan en los términos de este código.
+El producto del remate de dichos bienes se destinará a los programas del estado que fomenten la actividad física y el deporte entre los jóvenes.
