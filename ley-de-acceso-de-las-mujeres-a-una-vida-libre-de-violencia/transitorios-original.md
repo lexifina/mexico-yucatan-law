@@ -26,3 +26,4 @@ Gobernador del Estado de Yucatán
 (RÚBRICA)
 Víctor Edmundo Caballero Durán
 Secretario General de Gobierno
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
