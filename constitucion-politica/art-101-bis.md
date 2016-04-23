@@ -1,0 +1,16 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
+(ADICIONADO, D.O. 20 DE ABRIL DE 2016)
+Artículo 101 Bis.- El Sistema Estatal Anticorrupción es la instancia de coordinación entre las autoridades del orden estatal y municipal competentes en la prevención, detección y sanción de responsabilidades administrativas y hechos de corrupción, así como en la fiscalización y control de recursos públicos. Así mismo, participará, colaborará y asistirá en sus funciones al Sistema Nacional Anticorrupción, en los términos previstos por la ley.
+Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
+I.- El sistema contará con un comité coordinador que estará integrado por los titulares de la Auditoría Superior del Estado; de la Vicefiscalía Especializada en Combate a la Corrupción; de la secretaría del Ejecutivo estatal responsable del control interno; por el presidente del Tribunal de Justicia Administrativa del Estado de Yucatán; el presidente del Instituto Estatal de Transparencia, Acceso a la Información Pública y Protección de Datos Personales; así como por un representante del Consejo de la Judicatura del Estado y otro del comité de participación ciudadana.
+II.- El comité de participación ciudadana deberá integrarse por cinco ciudadanos que se hayan destacado por su contribución a la transparencia, la rendición de cuentas o el combate a la corrupción y serán designados en los términos que establezca la ley.
+III.- Corresponderá al comité coordinador del sistema, en los términos que determine la ley:
+a) El establecimiento de mecanismos de coordinación entre el estado, los municipios y entre estos con la federación.
+b) El diseño y promoción de políticas integrales en materia de fiscalización y control de recursos públicos, de prevención, control y disuasión de faltas administrativas y hechos de corrupción, en especial sobre las causas que los generan.
+c) La determinación de los mecanismos de suministro, intercambio, sistematización y actualización de la información que sobre estas materias generen las instituciones competentes del estado y sus municipios.
+d) El establecimiento de bases y principios para la efectiva coordinación de las autoridades del estado y sus municipios en materia de fiscalización y control de los recursos públicos.
+e) La elaboración de un informe anual que contenga los avances y resultados del ejercicio de sus funciones y de la aplicación de políticas y programas en la materia.
+Derivado de este informe, podrá emitir recomendaciones no vinculantes a las autoridades, con el objeto de que adopten medidas dirigidas al fortalecimiento institucional para la prevención de faltas administrativas y hechos de corrupción, así como al mejoramiento de su desempeño y del control interno. Las autoridades destinatarias de las recomendaciones informarán al comité sobre la atención que brinden a estas, en los términos previstos en la ley.
+(REUBICADO [N. DE E. ANTES TÍTULO DÉCIMO], D.O. 9 DE SEPTIEMBRE DE 2005)
+TITULO UNDECIMO
+Disposiciones generales
