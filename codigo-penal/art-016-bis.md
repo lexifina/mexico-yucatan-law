@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 2 DE MAYO DE 2016)
+ARTÍCULO 16 BIS. Las personas morales serán responsables penalmente por los delitos culposos o dolosos que se cometan, en su nombre, por su cuenta, en su provecho o beneficio, por sus representantes o administradores de hecho o de derecho, o por las personas sometidas a la autoridad de aquellos cuando hayan actuado con su autorización o consentimiento.
+Cuando una empresa, grupo u organización carezca de personalidad jurídica, pero haya cometido un delito en el seno, con la colaboración, a través o por medio de la persona moral, el órgano jurisdiccional podrá aplicarle las sanciones previstas en las fracciones VIII, X, XII, XIII y XIV del artículo 28 de este código para las personas morales.
+Quedan exceptuados de lo dispuesto en este artículo las instituciones públicas.

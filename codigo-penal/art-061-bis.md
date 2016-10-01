@@ -1,3 +1,1 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO ÚNICO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, D.O. 2 DE MAYO DE 2013)
-ARTÍCULO 61 BIS. En caso de aseguramiento de animales domésticos, éstos se canalizarán a lugares adecuados para su debido cuidado y se dará aviso inmediato a las autoridades correspondientes, así como a las asociaciones protectoras de animales debidamente constituidas, las cuales podrán solicitar en cualquier momento a la Fiscalía General del Estado o Juez competente, su resguardo temporal, hasta por un plazo de 6 meses, y en el caso de que el dueño o poseedor permanezca privado de su libertad o no fuera reclamado por algún familiar del imputado durante este plazo, dichas asociaciones obtendrán la posesión definitiva de los mismos, previa resolución judicial que así lo determine.
+ARTÍCULO 61 BIS. (DEROGADO, D.O. 2 DE MAYO DE 2016)
