@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 18 DE JUNIO DE 2016)
+ARTÍCULO 352 BIS.- En el supuesto previsto en el artículo que antecede, no constituyen delito de abandono, las conductas realizadas por el personal de las instituciones de salud, el representante que conste en el documento de voluntad anticipada ni los familiares del signatario de dicho documento, para efectos del cumplimiento de las disposiciones establecidas en la Ley de Voluntad Anticipada del Estado de Yucatán.
