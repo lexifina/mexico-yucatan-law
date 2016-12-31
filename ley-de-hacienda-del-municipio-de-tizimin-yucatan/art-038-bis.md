@@ -4,4 +4,5 @@ Artículo 38 bis.- Cuando el contribuyente obligado al pago del impuesto predial
 I.- Tener 65 años o más al día 31 de diciembre del año inmediato anterior al de causación del impuesto;
 II.- Ser propietario del inmueble por el que solicita el descuento;
 III.- No ser propietario de otro inmueble en el Municipio de Tizimín; y
-IV.- El valor del inmueble no rebase los mil salarios mínimos generales diarios vigentes en el Estado.
+(REFORMADA, D.O. 28 DE DICIEMBRE DE 2016)
+IV.- El valor del inmueble no rebase los $ 73,000.00 pesos.

@@ -1,4 +1,4 @@
-LEY DE HACIENDA PARA EL MUNICIPIO DE TEMAX, YUCATAN
+LEY DE HACIENDA PARA EL MUNICIPIO DE TEMAX, YUCATÁN
 Ley publicada en el Diario Oficial del Gobierno del Estado de Yucatán, el jueves 28 de diciembre de 2006.
 GOBIERNO DEL ESTADO
 PODER EJECUTIVO

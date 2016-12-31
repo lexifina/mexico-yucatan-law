@@ -1,4 +1,4 @@
-Artículo 127 (Sic).- Son sujetos obligados al pago de las contribuciones de mejoras las personas físicas o morales que sean propietarios, fideicomisarios, fideicomitentes, fiduciarios o poseedores por cualquier título de los predios beneficiados con obras realizadas por el Ayuntamiento, sin importar si están destinados a casa-habitación, o se trate de establecimientos comerciales, industriales y/o de prestación de servicios.
+Artículo 127 (SIC).- Son sujetos obligados al pago de las contribuciones de mejoras las personas físicas o morales que sean propietarios, fideicomisarios, fideicomitentes, fiduciarios o poseedores por cualquier título de los predios beneficiados con obras realizadas por el Ayuntamiento, sin importar si están destinados a casa-habitación, o se trate de establecimientos comerciales, industriales y/o de prestación de servicios.
 Para los efectos de este artículo se consideran beneficiados con las obras que efectúe el Ayuntamiento los siguientes:
 Los predios exteriores, que colinden con la calle en la que se hubiese ejecutado las obras.
 Los predios interiores, cuyo acceso al exterior, fuere por la calle en donde se hubiesen ejecutado las obras.
