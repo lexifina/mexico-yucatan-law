@@ -1,16 +1,13 @@
 (ADICIONADO, D.O. 1 DE OCTUBRE DE 2006)
 Artículo 73 Bis.- En los términos previstos por esta Constitución, se establece un Sistema Integral de Justicia para las personas que tengan entre 12 años cumplidos y menos de 18 años de edad, a las que se les atribuya o se les declare responsables de conductas tipificadas como delitos en las disposiciones penales del Estado.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA CONSTITUCIÓN.
 (REFORMADO, D.O. 17 DE MAYO DE 2010)
 La procuración, impartición y acceso a la justicia para adolescentes estará a cargo de la Fiscalía General del Estado, de la Sala Especializada, de los jueces en materia de Justicia para Adolescentes del Poder Judicial del Estado, y del Instituto de la Defensoría Pública del Estado. La ejecución y supervisión de las medidas estará a cargo del Centro de Aplicación de Medidas y la Dirección de Ejecución, Prevención y Reinserción Social, en los ámbitos de sus competencias, los que serán órganos especializados en la materia.
 (F. DE E., D.O. 25 DE OCTUBRE DE 2006)
 Los procedimientos seguidos a los adolescentes, tendrán como principios rectores: el de interés superior, el debido proceso legal, confidencialidad, oportunidad, proporcionalidad y protección integral.
 (REFORMADO, D.O. 30 DE MARZO DE 2007)
 En los términos y condiciones de Ley, se aplicarán medidas de orientación, protección y tratamiento externo o en internamiento que amerite cada caso, con el fin de lograr la reincorporación social y familiar del adolescente, así como el pleno desarrollo de su persona y capacidades.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA CONSTITUCIÓN.
 (REFORMADO, D.O. 17 DE MAYO DE 2010)
 El internamiento se utilizará como medida extrema, en el menor tiempo posible, y se aplicará a los adolescentes mayores de catorce años de edad, por la comisión de conductas calificadas como delitos graves en la ley de materia.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE TÍTULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA LA CONSTITUCIÓN.
 (REUBICADO, D.O. 17 DE MAYO DE 2010)
 TITULO SEPTIMO
 De los Organismos Autónomos

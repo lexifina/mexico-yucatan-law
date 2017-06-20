@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (ADICIONADO, D.O. 20 DE ABRIL DE 2016)
 Artículo 101 Bis.- El Sistema Estatal Anticorrupción es la instancia de coordinación entre las autoridades del orden estatal y municipal competentes en la prevención, detección y sanción de responsabilidades administrativas y hechos de corrupción, así como en la fiscalización y control de recursos públicos. Así mismo, participará, colaborará y asistirá en sus funciones al Sistema Nacional Anticorrupción, en los términos previstos por la ley.
 Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:

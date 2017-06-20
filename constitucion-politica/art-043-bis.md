@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (REFORMADO, D.O. 20 DE ABRIL DE 2016)
 Artículo 43 Bis.- La Auditoría Superior del Estado es un órgano con autonomía técnica, presupuestal y de gestión para el ejercicio de sus atribuciones, así como para decidir sobre su organización interna, funcionamiento y resoluciones en los términos que disponga la ley.
 La función de fiscalización se realizará conforme a los principios de legalidad, imparcialidad y confiabilidad.
