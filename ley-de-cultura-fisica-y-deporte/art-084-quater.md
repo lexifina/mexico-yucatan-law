@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 7 DE JULIO DE 2017)
+Artículo 84 quater.- El estado y los municipios deberán implementar las acciones y tomar las medidas necesarias para integrar, mantener actualizado y garantizar la seguridad y confidencialidad del padrón de personas a quienes se les haya impuesto como sanción la suspensión o prohibición de asistencia a eventos deportivos masivos o con fines de espectáculo a que se refiere el artículo 155 de la ley general.

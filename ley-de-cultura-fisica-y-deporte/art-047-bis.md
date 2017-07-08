@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 7 DE JULIO DE 2017)
+Artículo 47 bis.- Las instalaciones destinadas a la cultura física y el deporte deberán proyectarse, construirse, administrarse y operarse de conformidad con las disposiciones legales y normativas aplicables, a efecto de que impidan o limiten al máximo las posibles manifestaciones de violencia, discriminación y otras conductas antisociales o delictivas, y, en consecuencia, permitan proteger la integridad y seguridad de los asistentes y participantes.

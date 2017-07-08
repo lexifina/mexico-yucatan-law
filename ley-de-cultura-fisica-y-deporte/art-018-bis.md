@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 7 DE JULIO DE 2017)
+Artículo 18 bis.- La coordinación y colaboración entre el estado y los municipios, y entre estos y la federación, con respecto a la seguridad y la prevención de la violencia en eventos deportivos masivos o con fines de espectáculo, se sujetará a lo establecido en los artículos 41 Bis y 42 de la ley general, sin perjuicio de lo dispuesto por la Ley General del Sistema Nacional de Seguridad Pública.

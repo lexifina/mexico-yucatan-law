@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 7 DE JULIO DE 2017)
+Artículo 51 bis.- El estado y los municipios se coordinarán entre sí y con los sectores social y privado para, en el ámbito de sus respectivas competencias, impulsar la inclusión y práctica de la cultura física en todos los niveles de educación como elemento fundamental para el desarrollo armónico e integral del ser humano; para tal efecto, implementarán las acciones establecidas en el artículo 88 de la ley general.

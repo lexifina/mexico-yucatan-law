@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 7 DE JULIO DE 2017)
+Artículo 47 ter.- En el uso de las instalaciones con fines de espectáculo, deberán tomarse las providencias necesarias que determinen la ley general, esta ley, la Comisión Especial contra la Violencia en el Deporte y la Comisión Estatal contra la Violencia en el Deporte.
+Asimismo, deberán respetarse los calendarios y programas previamente establecidos, así como acreditar, por parte de los organizadores de los eventos deportivos, que se cuenta con póliza de seguro vigente que cubra la reparación de los daños a personas y bienes que pudieran ocasionarse, cuando así se acredite su responsabilidad y que sea sujeto de ser asegurado.
