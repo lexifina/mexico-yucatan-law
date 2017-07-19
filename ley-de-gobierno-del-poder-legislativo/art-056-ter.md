@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 18 DE JULIO DE 2017)
+Artículo 56 Ter.- La convocatoria a que se refiere el artículo anterior será abierta para todas las personas, contendrá las etapas completas para el procedimiento, las fechas límite y los plazos improrrogables, así como los requisitos legales que deben satisfacer los aspirantes y los documentos que deben presentar para acreditarlos, el órgano que se encargará del procedimiento y los criterios con que se evaluará a los aspirantes.

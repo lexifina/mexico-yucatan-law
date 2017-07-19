@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 18 DE JULIO DE 2017)
+Artículo 56 Quater.- El Congreso a través de la instancia que determine la ley, podrá investigar, sustanciar, y resolver sobre las faltas administrativas no graves de los titulares de los órganos de control interno de los organismos con autonomía reconocida en la Constitución Política del Estado de Yucatán y que ejerzan recursos del presupuesto de egresos del estado.
+Asimismo, será competente para investigar y sustanciar las faltas administrativas graves cuya sanción corresponde al Tribunal de Justicia Administrativa del Estado de Yucatán, de conformidad con lo dispuesto por la Ley General de Responsabilidades Administrativas y demás normativa aplicable.
+En el ejercicio de sus funciones, dicha instancia deberá garantizar la separación entre las áreas encargadas de la investigación, sustanciación y resolución de los procedimientos, en los términos previstos por la Ley General de Responsabilidades Administrativas.
