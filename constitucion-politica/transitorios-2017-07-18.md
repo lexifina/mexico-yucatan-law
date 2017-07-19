@@ -1,0 +1,3 @@
+D.O. 18 DE JULIO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO 504/2017 POR EL QUE SE MODIFICA LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE YUCATÁN".]
+Artículo único.- Este decreto entrará en vigor el 19 de julio del año 2017.
