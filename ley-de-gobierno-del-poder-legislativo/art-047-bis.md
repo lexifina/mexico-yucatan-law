@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 11 DE SEPTIEMBRE DE 2017)
+Artículo 47 Bis.- Una vez instaladas las Comisiones e iniciados sus trabajos harán una revisión de los temas que le fueron turnados por todas las Legislaturas anteriores con la finalidad de verificar si quedaron asuntos pendientes por tramitar, estudiar, informar y en especial dictaminar, siendo que en caso de existir algún asunto rezagado, citará a sus integrantes a sesionar en un plazo no mayor de cinco días con la finalidad de cumplir con lo establecido en esta Ley y su Reglamento.
