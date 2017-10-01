@@ -14,7 +14,6 @@ IX.- Mantener actualizadas y vigilar el cumplimiento de las normas relativas a l
 X.- Vigilar el cumplimiento de las normas relativas a la capacitación y adiestramiento de los trabajadores, así como elaborar y ejecutar programas de capacitación laboral en el Estado;
 XI.- Revisar, previa solicitud de la parte interesada, el contenido de los contratos colectivos de trabajo;
 XII.- Desarrollar y ejecutar programas en materia de trabajo, de conformidad con la normatividad aplicable;
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADA, D.O. 16 DE DICIEMBRE DE 2015)
 XIII.- Proponer políticas en materia laboral con visión regional y local que impulsen estrategias y líneas de acción que contribuyan a mejorar la productividad, la ocupación, el empleo, la capacitación, el adiestramiento, la salud e higiene, así como todas las medidas institucionales que persigan el fortalecimiento de la productividad en el estado;
 XIV.- Instrumentar políticas y acciones que mejoren las condiciones laborales de las mujeres y los grupos en situación de vulnerabilidad en el Estado;
@@ -25,7 +24,6 @@ XVIII.- Aportar a las autoridades federales del trabajo, la información que sol
 XIX.- Mediar y conciliar, a solicitud de la parte interesada o cuando la situación lo amerite, en los conflictos que surjan de presuntas violaciones a las leyes laborales, contratos colectivos de trabajo o a las condiciones generales de trabajo;
 XX.- Fomentar y apoyar la organización social para el trabajo y autoempleo, y
 XXI.- Aplicar las disposiciones que por Ley, Decreto, Acuerdo o Convenio se le confieran, así como aquellas que le asigne el Gobernador del Estado.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE CAPÍTULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, D.O. 5 DE DICIEMBRE DE 2012)
 CAPÍTULO XX
 De la Secretaría de la Cultura y las Artes

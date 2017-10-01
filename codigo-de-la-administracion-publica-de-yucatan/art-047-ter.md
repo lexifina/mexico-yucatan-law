@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, D.O. 30 DE SEPTIEMBRE DE 2011)
 Artículo 47 Ter.- A la Secretaría de la Cultura y las Artes le corresponde el despacho de los siguientes asuntos:
 I.- Dirigir, planear y ejecutar las políticas públicas del Estado y su contenido programático, en materia de cultura y recreación;
