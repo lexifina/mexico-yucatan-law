@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 24 DE NOVIEMBRE DE 2017)
+ARTÍCULO 267 BIS. En caso de tratarse de particulares realizando funciones propias de supervisor de libertad, y con independencia de la responsabilidad penal individual de trabajadores o administradores por la comisión de los delitos establecidos en las fracciones XXI, XXII o XXIII del artículo 267, la organización podrá ser acreedora a las penas y medidas en materia de responsabilidad penal de las personas jurídicas estipuladas en este Código.
