@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (ADICIONANDO, D.O. 2 DE MAYO DE 2016)
 ARTÍCULO 165 SEXIES. Se sancionará de dos a ocho años de prisión y de quinientos a mil días-multa, a quien:
 I.- Ingrese dolosamente a las bases de datos del Sistema Estatal de Seguridad Pública previstos en la Ley del Sistema Estatal de Seguridad Pública, sin tener derecho a ello o, teniéndolo, ingrese a sabiendas información errónea, que dañe o que pretenda dañar en cualquier forma la información, las bases de datos o los equipos o sistemas que las contengan.
