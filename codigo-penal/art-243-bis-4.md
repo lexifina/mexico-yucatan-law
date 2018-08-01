@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 22 DE JUNIO DE 2018)
+ARTÍCULO 243 BIS 4.- A quien coaccione, hostigue, o exija a otra persona, la elaboración o remisión de imágenes o grabaciones de voz o audiovisuales de contenido erótico, sexual o pornográfico bajo la amenaza de revelar, publicar, difundir o exhibir sin su consentimiento el material de la misma naturaleza que previamente la víctima le haya compartido directamente o que haya obtenido por cualquier otro medio, se le impondrá de seis meses a cuatro años de prisión y multa de cien a cuatrocientas unidades de medida y actualización.
+Cuando la conducta a que se refiere en el párrafo anterior sea cometida contra un menor de dieciocho años, la pena y sanción establecida se aumentará hasta en una mitad.
