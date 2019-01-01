@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 23 DE NOVIEMBRE DE 2018)
+Artículo 26 bis. La titularidad de la Secretaría de las Mujeres deberá recaer, preferentemente, en una mujer, quien deberá, además de cumplir con los requisitos previstos en el artículo anterior de este Código, acreditar conocimientos y experiencia en materia de igualdad entre mujeres y hombres, equidad de género y prevención de violencia contra las mujeres.
