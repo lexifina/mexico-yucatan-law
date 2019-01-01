@@ -1,0 +1,1 @@
+Artículo 122 J.- Son sujetos de los derechos relacionados con el servicio público de suministro de agua potable, el propietario, usufructuarios o poseedores de predios rústicos o urbanos del municipio, interesados en su contratación.

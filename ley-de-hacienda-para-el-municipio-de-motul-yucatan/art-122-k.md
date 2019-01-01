@@ -1,0 +1,1 @@
+Artículo 122 K.- Es objeto de los derechos que a continuación se describen, la prestación del servicio público del suministro de agua potable a los habitantes del municipio, para el uso doméstico o comercial.
