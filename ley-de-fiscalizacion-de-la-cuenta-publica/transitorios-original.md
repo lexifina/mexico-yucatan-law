@@ -28,3 +28,4 @@ Gobernador del Estado de Yucatán
 (RÚBRICA)
 Roberto Antonio Rodríguez Asaf
 Secretario general de Gobierno
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
