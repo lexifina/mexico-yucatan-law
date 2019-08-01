@@ -15,8 +15,10 @@ VI.- Existan datos que establezcan que hubo amenazas relacionadas con el hecho d
 VII.- La víctima haya sido incomunicada, cualquiera que sea el tiempo previo a la privación de la vida.
 (ADICIONADA, D.O. 19 DE JUNIO DE 2017)
 VIII.- El cuerpo de la víctima sea expuesto o exhibido en un lugar público.
-A quien cometa el delito de feminicidio se le impondrán de treinta a cuarenta años de prisión y de quinientos a mil días multa.
-Si entre el sujeto activo y la víctima existió una relación de parentesco por consanguinidad en línea recta, sin limitación de grado, o colateral hasta el cuarto grado o por afinidad hasta el cuarto grado; laboral, docente o sentimental, se impondrá una pena de prisión de treinta a cincuenta años de prisión y de quinientos a mil días multa.
+(REFORMADO, D.O. 31 DE JULIO DE 2019)
+A quien cometa el delito de feminicidio se le impondrán de treinta y dos a cuarenta y cinco años de prisión y de mil quinientos a dos mil quinientos días- multa.
+(REFORMADO, D.O. 31 DE JULIO DE 2019)
+Si entre el sujeto activo y la víctima existió una relación de parentesco por consanguinidad en línea recta, sin limitación de grado, o colateral hasta el cuarto grado o por afinidad hasta el cuarto grado; laboral, docente o sentimental, se impondrá una pena de prisión de cuarenta a sesenta años de prisión y de mil quinientos a dos mil quinientos días-multa.
 Además de las sanciones descritas en este artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
 (REFORMADO, D.O. 19 DE JUNIO DE 2017)
 Las autoridades investigadoras competentes, cuando se encuentren ante un probable delito de feminicidio deberán aplicar el protocolo correspondiente a dicho delito; en caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.

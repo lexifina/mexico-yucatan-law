@@ -1,5 +1,5 @@
-(ADICIONADO, D.O. 28 DE MARZO DE 2018)
-ARTÍCULO 308 Bis.- Se impondrá pena de uno a dos años de prisión y de cincuenta a quinientos días-multa a quien:
+(REFORMADO PRIMER PÁRRAFO, D.O. 31 DE JULIO DE 2019)
+ARTÍCULO 308 BIS. Se impondrá pena de dos a tres años de prisión y de cien a quinientos días-multa a quien:
 I. Asedie, por cualquier medio, con fines lascivos, y a pesar de su oposición, a una persona o solicite la ejecución de un acto de naturaleza sexual, para sí o para un tercero, independientemente de que se realice en uno o varios eventos;
 II. Asedie reiteradamente, con fines lascivos, a cualquier persona, sin su consentimiento, en lugares públicos, o en instalaciones o vehículos destinados al transporte público de pasajeros;
 III. Capte imágenes o realice cualquier registro audiovisual del cuerpo de otra persona o de alguna parte de su cuerpo, sin su consentimiento y con un carácter erótico-sexual, o

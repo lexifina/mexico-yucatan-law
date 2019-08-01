@@ -5,7 +5,8 @@ II. El secretario de Administración y Finanzas;
 III. El secretario de Salud;
 IV. El secretario de Educación;
 V. El secretario de Obras Públicas;
-VI. El secretario de la Juventud;
+(REFORMADA, D.O. 31 DE JULIO DE 2019)
+VI. El secretario de Desarrollo Social;
 VII. Los presidentes municipales de las cabeceras de cada una de las regiones en las que se distribuye el Estado, de conformidad a lo previsto en el Reglamento de la Ley de Planeación para el Desarrollo del Estado de Yucatán, y
 VIII. Tres representantes de las asociaciones y sociedades deportivas estatales.
 El consejo estatal contará con un secretario técnico, quien será designado por el presidente y participará en las sesiones únicamente con derecho a voz.

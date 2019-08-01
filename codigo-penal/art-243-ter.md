@@ -11,3 +11,6 @@ A quien realice la conducta prevista en el párrafo anterior se le impondrá de 
 Al servidor público que por las razones previstas en este artículo, niegue o retarde un trámite, prestación o servicio a quien tenga el derecho, se le aumentará en una mitad la pena prevista en el párrafo anterior, y se le suspenderá de su empleo, cargo o comisión por el período de un mes a un año. En caso de reincidencia será destituido.
 No serán considerados discriminatorios los programas y medidas de protección que realice el Estado, siempre y cuando estén dirigidas a personas en condiciones de vulnerabilidad, así como las previstas en el artículo 5 de la Ley de la materia.
 Este delito se perseguirá por querella.
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, D.O. 31 DE JULIO DE 2019)
+CAPÍTULO VII
+Violencia laboral contra las mujeres

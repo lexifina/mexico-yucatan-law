@@ -5,7 +5,8 @@ II. El secretario general de Gobierno;
 III. El secretario de Administración y Finanzas;
 IV. El secretario de Educación;
 V. El secretario de Salud, y
-VI. El secretario de la Juventud.
+(REFORMADA, D.O. 31 DE JULIO DE 2019)
+VI. El secretario de Desarrollo Social.
 Los integrantes del consejo directivo tendrán derecho a voz y voto durante sus sesiones.
 El consejo directivo contará con un secretario de actas y acuerdos, quien será designado por el secretario general de Gobierno y participará en las sesiones, para el desempeño de sus funciones, con derecho a voz, pero no a voto.
 Los integrantes del consejo directivo, con excepción del presidente, quien será suplido por el secretario general de Gobierno, designarán, por escrito dirigido al secretario de actas y acuerdos, a sus suplentes, quienes los sustituirán en caso de ausencia con las facultades y obligaciones que dispone para aquellos esta ley, el Reglamento del Código de la Administración Pública de Yucatán y otras disposiciones legales y normativas aplicables.
