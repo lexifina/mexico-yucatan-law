@@ -8,7 +8,7 @@ Para el ejercicio de sus funciones, el Instituto Electoral y de Participación C
 El Instituto Electoral y de Participación Ciudadana de Yucatán contará con un órgano interno de control dotado de autonomía técnica y de gestión. Su titular será designado por el Congreso del Estado, por el voto de las dos terceras partes, de sus integrantes, a propuesta de instituciones públicas de educación superior, en la forma y términos que determine la ley. Durará seis años en el cargo y podrá ser reelecto por una sola vez. Deberá mantener la coordinación técnica necesaria con la Auditoría Superior del Estado de Yucatán.
 El Consejo General del Instituto Electoral y de Participación Ciudadana de Yucatán podrá convenir con el Instituto Nacional Electoral para que este se haga cargo de la organización de los procesos electorales locales, en los términos que disponga la legislación aplicable.
 La ley determinará las bases del servicio profesional electoral nacional y las relaciones laborales de los servidores públicos del Instituto Electoral y de Participación Ciudadana de Yucatán.
-El plebiscito, el referéndum y la iniciativa popular son mecanismos de participación ciudadana. Su organización, desarrollo, cómputo y declaración de los resultados es una función estatal que corresponde al Instituto Electoral y de Participación Ciudadana de Yucatán.
+(DEROGADO ÚLTIMO PÁRRAFO, D.O. 31 DE JULIO DE 2019)
 (ADICIONADO, D.O. 20 DE JUNIO DE 2014)
 CAPÍTULO V
 Del Tribunal Electoral del Estado de Yucatán
