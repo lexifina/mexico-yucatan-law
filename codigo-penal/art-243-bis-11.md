@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 26 DE NOVIEMBRE DE 2019)
+ARTÍCULO 243 BIS 11. Las sanciones contenidas en los artículos 243 Bis 7 y 243 Bis 8 de este código, se duplicarán cuando la conducta tenga la intención de obstruir, entorpecer, obstaculizar, limitar o imposibilitar la procuración o impartición de justicia, o recaiga sobre los registros relacionados con un procedimiento penal resguardados por las autoridades competentes.
+Además de lo establecido en el párrafo anterior, si el sujeto activo es un servidor público, se impondrá la destitución del cargo o empleo y la inhabilitación para obtener otro en el servicio público por un término de hasta ocho años.
