@@ -16,3 +16,4 @@ Secretaria general de Gobierno, encargada del Despacho del Gobernador, conforme 
 (RÚBRICA)
 Lic. Olga Rosas Moya
 Secretaria de Administración y Finanzas, en funciones de secretaria general de Gobierno, conforme al artículo 18 del Código de la Administración Pública de Yucatán
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
