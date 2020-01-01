@@ -3,6 +3,6 @@ Artículo 75 Quater.- El Tribunal de Justicia Administrativa del Estado de Yucat
 (REFORMADO, D.O. 14 DE NOVIEMBRE DE 2019)
 El Tribunal de Justicia Administrativa del Estado de Yucatán estará integrado por tres magistrados, designados por la Gobernadora o Gobernador y ratificados por el voto de las dos terceras partes de los miembros integrantes del Congreso. Durarán en su encargo cinco años pudiendo ser considerados para nuevos nombramientos, hasta para dos períodos más, y sólo podrán ser removidos de sus cargos por las causas graves que señale la ley. No podrá haber más de dos magistrados del mismo género.
 Para ser designado Magistrado del Tribunal de Justicia Administrativa del Estado de Yucatán se deberán cumplir los mismos requisitos que para ser nombrado Magistrado del Poder Judicial del Estado. El magistrado presidente será designado de entre sus integrantes, por la votación mayoritaria de los magistrados del tribunal, de conformidad con el procedimiento que establezca la ley respectiva.
-(REUBICADO [N. DE E. ANTES TÍTULO SÉPTIMO], D.O. 9 DE SEPTIEMBRE DE 2005)
-TITULO OCTAVO
-De los Municipios del Estado
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, D.O. 14 DE NOVIEMBRE DE 2019)
+CAPÍTULO VII
+De la Fiscalía Especializada en Combate a la Corrupción del Estado de Yucatán
