@@ -1,5 +1,7 @@
 (ADICIONADO, D.O. 20 DE ABRIL DE 2016)
 Artículo 101 Bis.- El Sistema Estatal Anticorrupción es la instancia de coordinación entre las autoridades del orden estatal y municipal competentes en la prevención, detección y sanción de responsabilidades administrativas y hechos de corrupción, así como en la fiscalización y control de recursos públicos. Así mismo, participará, colaborará y asistirá en sus funciones al Sistema Nacional Anticorrupción, en los términos previstos por la ley.
+(ADICIONADO, D.O. 13 DE MARZO DE 2020)
+El Sistema Estatal Anticorrupción tendrá como objeto realizar acciones y políticas públicas en la prevención, identificación y sanción de acuerdo a las leyes en la materia, a fin de disuadir y erradicar prácticas de corrupción en el sector público y privado.
 Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
 (REFORMADA, D.O. 14 DE NOVIEMBRE DE 2019)
 I.- El sistema contará con un comité coordinador que estará integrado por los titulares de la Auditoría Superior del Estado; de la Fiscalía Especializada en Combate a la Corrupción; de la secretaría del Ejecutivo estatal responsable del control interno; por el presidente del Tribunal de Justicia Administrativa del Estado de Yucatán; el presidente del Instituto Estatal de Transparencia, Acceso a la Información Pública y Protección de Datos Personales; así como por un representante del Consejo de la Judicatura del Estado y otro del comité de participación ciudadana.
