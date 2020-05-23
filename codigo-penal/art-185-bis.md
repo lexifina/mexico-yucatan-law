@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 22 DE MAYO DE 2020)
+ARTÍCULO 185 Bis. Se aplicará sanción de dos a cinco años de prisión o hasta 300 días multa al que realice por sí o incite a otros a realizar actos discriminatorios tales como la negación en la prestación de un servicio público o privado, se restrinja su libertad de tránsito o se dañe la integridad emocional y psicológica en contra del personal de salud por razón del desempeño de sus labores.
+Las sanciones a que se refiere el primer párrafo de este artículo se aumentarán hasta en una mitad, cuando los actos descritos se realicen durante una emergencia sanitaria.

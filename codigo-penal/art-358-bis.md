@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 22 DE MAYO DE 2020)
+ARTÍCULO 358 Bis. Cuando el ofendido pertenezca a una institución médica o de prestación de servicios de salud pública o privada, para aquellas lesiones que no pongan en peligro la vida del ofendido y tarde en sanar hasta quince días, se le impondrán a quien la infiera, de uno a tres años de prisión o de cincuenta a doscientos días - multa y de cincuenta a cien días de trabajo en favor de la comunidad. Si tardare en sanar más de quince días se le impondrá de tres a cinco años de prisión y de cincuenta a quinientos días-multa.
+Cuando las conductas señaladas en el presente artículo se cometan durante una emergencia sanitaria o, quien las infiera sea un servidor público, las penalidades del párrafo anterior se aumentarán hasta en una mitad más.
+Los delitos previstos en este artículo se perseguirán de oficio.
