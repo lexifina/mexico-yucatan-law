@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 9 DE JUNIO DE 2020)
+Artículo 75 Bis.- La Contraloría Interna, es un órgano funcionalmente autónomo y dependerá del Congreso, a través de la Junta de Gobierno y Coordinación Política, encargada de las funciones de control y evaluación del cumplimiento de las obligaciones legales y normativas en materias financiera y administrativa dentro del Poder Legislativo del Estado, en términos de las disposiciones aplicables.
