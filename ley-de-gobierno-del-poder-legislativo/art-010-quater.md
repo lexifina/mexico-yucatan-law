@@ -1,0 +1,5 @@
+(ADICIONADO, D.O. 9 DE JUNIO DE 2020)
+Artículo 10 Quáter.- En la implementación del Parlamento Abierto, de manera enunciativa más no limitativa, se deberán (sic) realizar lo siguiente:
+I.- Poner a consulta de la ciudadanía las iniciativas y proposiciones que se presenten al Congreso del Estado a través del uso de las tecnologías de la información y de la comunicación, mediante la implementación de esquemas, modelos y vías de interacción, que permitan la comunicación entre la ciudadanía y el Congreso del Estado;
+II.- Poner en conocimiento, y en su caso, a disposición de la ciudadanía la información que se genere o posea por parte del Poder Legislativo sujetándose para ello a lo que dispone la Ley de Transparencia y Acceso a la Información Pública del Estado de Yucatán, la Ley General de Transparencia y Acceso a la Información Pública y demás normatividad aplicable; y,
+III.- Propiciar la participación ciudadana en las sesiones de comisiones y del pleno del Congreso, así como en los demás trabajos legislativos, con derecho a voz, pero sin voto, de conformidad con la convocatoria que al efecto se emita.

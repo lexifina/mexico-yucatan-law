@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 9 DE JUNIO DE 2020)
+Artículo 10 Ter.- La información relacionada con la implementación del Parlamento Abierto se deberá mostrar actualizada en la página de internet del Congreso del Estado, sujetándose para ello en lo conducente, a las disposiciones de la Ley de Transparencia y Acceso a la Información Pública del Estado de Yucatán, la Ley General de Transparencia y Acceso a la Información Pública y demás normatividad aplicable.
