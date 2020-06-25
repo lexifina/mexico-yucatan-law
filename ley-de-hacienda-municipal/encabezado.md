@@ -1,5 +1,4 @@
 LEY DE HACIENDA MUNICIPAL DEL ESTADO DE YUCATÁN
-N. DE E. DE CONFORMIDAD CON EL ARTÍCULO TRANSITORIO PRIMERO, EL PRESENTE ORDENAMIENTO ENTRA EN VIGOR EL 1 DE ENERO DE 2016, PREVIA PUBLICACIÓN EN EL DIARIO OFICIAL DEL ESTADO.
 Ley publicada en el Suplemento del Periódico Oficial del Estado de Yucatán, el viernes 18 de diciembre de 2015.
 Decreto 321/2015 por el que se emite la Ley de Hacienda Municipal del Estado de Yucatán
 Rolando Rodrigo Zapata Bello, Gobernador del Estado de Yucatán, con fundamento en los artículos 38, 55, fracción II, y 60 de la Constitución Política del Estado de Yucatán; y 14, fracciones VII y IX, del Código de la Administración Pública de Yucatán, a sus habitantes hago saber que el H. Congreso del Estado de Yucatán se ha servido dirigirme el siguiente decreto:
