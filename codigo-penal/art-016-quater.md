@@ -1,0 +1,9 @@
+(ADICIONADO, D.O. 22 DE JULIO DE 2020)
+ARTÍCULO 16 QUÁTER. Si el delito fuere cometido por los representantes o administradores de hecho o de derecho, la persona moral quedará excluida de responsabilidad si se cumplen las siguientes condiciones:
+a) El órgano de administración ha adoptado y ejecutado con eficacia, antes de la comisión del delito, modelos de organización, gestión y prevención que incluyen las medidas de vigilancia y control idóneos y adecuados para prevenir delitos de la misma naturaleza o para reducir de forma significativa el riesgo de su comisión.
+b) La supervisión del funcionamiento y del cumplimiento del modelo de organización, gestión y prevención implantado ha sido confiada a un órgano de la persona moral con poderes autónomos de iniciativa y de control o que tenga encomendada legalmente la función de supervisar la eficacia de los controles internos de la persona moral.
+c) Los autores individuales han cometido el delito eludiendo fraudulentamente los modelos de organización y de prevención.
+d) No se ha producido una omisión o un ejercicio insuficiente de sus funciones de supervisión, vigilancia y control por parte del órgano al que se refiere la condición del inciso b).
+En los casos en los que las anteriores condiciones solamente puedan ser objeto de acreditación parcial, esta circunstancia será valorada para los efectos de atenuación de la pena.
+En las personas morales que entren en la clasificación de micro y pequeñas empresas, las funciones de supervisión a que se refiere la condición marcada con el inciso b) de este artículo, podrán ser asumidas directamente por el órgano de administración.
+Para efecto del párrafo anterior, son personas morales consideradas como micro y pequeñas empresas, aquéllas que estén consideradas así según su tamaño en la estratificación emitida por la legislación aplicable vigente.
