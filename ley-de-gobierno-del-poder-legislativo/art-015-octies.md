@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 22 DE JULIO DE 2020)
+Artículo 15 Octies.- Los dictámenes o minutas de los acuerdos, decretos o leyes, y cualquier otra documentación resuelta por el pleno o comisiones, así como los asuntos aprobados por la Junta de Gobierno y Coordinación Política en sesión fuera del recinto Legislativo, deberán ser firmados a más tardar dentro de los tres días hábiles siguientes a la sesión de que se trate para el trámite legal correspondiente.
