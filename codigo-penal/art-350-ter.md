@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 24 DE JULIO DE 2020)
+ARTÍCULO 350 TER. Cuando una persona aprovechándose de los conocimientos de cerrajería cometa, facilite o a sabiendas permita un ilícito mediante el uso de ganzúas, chorlas, llaves maestras o limadas o cualquier otro instrumento u objeto físico, scanner o cualquier otro dispositivo electrónico, destinado para abrir, bloquear, inhibir o forzar cerraduras o dispositivos de seguridad, se le impondrá una pena de prisión de uno a cinco años y hasta una multa de cincuenta a quinientos días-multa.
+Lo anterior, sin perjuicio de las sanciones que correspondan si resultare cometido otro u otros delitos. En todos los casos, para los instrumentos u objetos del delito, se estará a lo dispuesto en este código.
