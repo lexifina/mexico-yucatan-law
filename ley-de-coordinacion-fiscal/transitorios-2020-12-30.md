@@ -1,0 +1,4 @@
+D.O. 30 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO 327/2020 POR EL QUE SE MODIFICA LA LEY DE COORDINACIÓN FISCAL DEL ESTADO DE YUCATÁN, LA LEY GENERAL DE HACIENDA DEL ESTADO DE YUCATÁN Y LA LEY DE INGRESOS DEL ESTADO DE YUCATÁN PARA EL EJERCICIO FISCAL 2020".]
+Artículo único. Entrada en vigor
+Este decreto entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
