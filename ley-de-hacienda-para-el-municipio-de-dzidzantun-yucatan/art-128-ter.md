@@ -1,4 +1,5 @@
-Artículo 128 (Sic).- Las contribuciones de mejoras se pagarán por la realización de obras públicas de urbanización consistentes en:
+(REFORMADO SU NÚMERO, D.O. 26 DE DICIEMBRE DE 2020)
+Artículo 128 Ter.- Las contribuciones de mejoras se pagarán por la realización de obras públicas de urbanización consistentes en:
 I.- Pavimentación;
 II.- Construcción de banquetas;
 III.- Instalación de alumbrado público;
