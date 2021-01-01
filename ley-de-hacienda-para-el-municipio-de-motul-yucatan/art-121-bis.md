@@ -65,5 +65,6 @@ transportaciónhorario
 de carga de
 materiales y
 suministros
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA [N. DE E. REPUBLICADO], D.O. 23 DE DICIEMBRE DE 2020)
 CAPÍTULO XI
 Otros Servicios Prestados por el Ayuntamiento
