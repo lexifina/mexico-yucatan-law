@@ -5,3 +5,6 @@ II.- Le imponga profesión u oficio;
 III.- Le obligue a establecer o mantener una relación de noviazgo, o en su caso concubinato o matrimonio con una persona, en contra de su voluntad, o
 IV.- Limite, prohíba o condicione su acceso y uso de la información de métodos de salud sexual y reproductiva. Lo anterior sin perjuicio del derecho a la educación de los padres, de quienes ejerzan la patria potestad, tutela o guarda y custodia.
 Se impondrán de seis meses a tres años de prisión y de cien a trescientos días-multa.
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, D.O. 23 DE JUNIO DE 2021)
+CAPÍTULO X
+Violencia Institucional

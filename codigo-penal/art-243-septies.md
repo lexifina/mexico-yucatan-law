@@ -1,0 +1,8 @@
+(ADICIONADO, D.O. 23 DE JUNIO DE 2021)
+ARTÍCULO 243 SEPTIES. Comete el delito de violencia institucional contra las mujeres en razón de género, la persona servidora pública que durante el ejercicio de su empleo, cargo o comisión realice cualquier acto u omisión que:
+I. Discrimine públicamente la imagen de la mujer, asociándola a roles estigmatizados que impidan su empoderamiento o su acceso a la equidad de género o a una vida libre de violencia.
+II. Tenga como fin dilatar, obstaculizar o impedir el goce y ejercicio de los derechos humanos de las mujeres; o su acceso al disfrute de políticas públicas destinadas a prevenir, atender, investigar, sancionar y erradicar los diferentes tipos de violencia.
+Las conductas señaladas en la fracción I serán sancionadas con pena de uno a tres años de prisión y de cien a doscientos días-multa y la inhabilitación para ocupar un empleo, cargo o comisión en el servicio público, de dos a seis años y, en su caso, la destitución del cargo.
+Las conductas señaladas en la fracción II serán sancionadas con pena de dos a cuatro años de prisión y de cien a doscientos días-multa y la inhabilitación para ocupar un empleo, cargo o comisión en el servicio público, de dos a seis años y, en su caso, la destitución del cargo.
+Cuando las conductas señaladas en las fracciones anteriores, fueren cometidas contra una mujer perteneciente a un pueblo o comunidad indígena, la pena se incrementará en una mitad.
+Para la determinación de la responsabilidad y la imposición de las penas señaladas en este artículo, se seguirán las reglas de autoría y participación en términos de la legislación penal aplicable.
