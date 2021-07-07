@@ -1,0 +1,2 @@
+Artículo 321 Bis. El órgano jurisdiccional podrá decretar la convivencia a distancia a través de las Tecnologías de la Información y Comunicación disponibles, y a los que se pudiera tener fácil acceso, con la regularidad suficiente, a fin de mantener comunicación continua entre el infante y el padre o la madre no custodio, según las particularidades del caso, en emergencias públicas decretadas por la autoridad correspondiente.
+Interés superior de las niñas, niños y adolescentes
