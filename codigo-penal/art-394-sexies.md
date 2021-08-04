@@ -1,2 +1,2 @@
-(ADICIONADO, D.O. 1 DE ABRIL DE 2014)
-ARTÍCULO 394 SEXIES. Al servidor público que retarde o entorpezca maliciosamente o por negligencia la procuración o administración de justicia, cuando se trate de la investigación de un delito de feminicidio, se le impondrán de tres a ocho años de prisión y de quinientos a mil quinientos días multa, además será destituido e inhabilitado de tres a diez años para desempeñar otro empleo, cargo o comisión públicos.
+(REFORMADO, D.O. 3 DE AGOSTO DE 2021)
+ARTÍCULO 394 SEXIES. Al servidor público que retarde o entorpezca maliciosamente o por negligencia la procuración o administración de justicia, cuando se trate de la investigación de un delito de feminicidio, se le impondrán de tres a ocho años de prisión y de quinientos a mil quinientos días multa, además será destituido e inhabilitado de seis a diez años para desempeñar otro empleo, cargo o comisión públicos.
