@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 3 DE AGOSTO DE 2021)
+ARTÍCULO 367 QUÁTER. Al servidor público que retarde o entorpezca maliciosamente o por negligencia la procuración o administración de justicia, cuando se trate de la investigación del delito de lesiones por razones de género se le impondrán de 2 a 5 años de prisión y multa de 300 a 900 unidades de medida y actualización, además será destituido e inhabilitado de tres a diez años para desempeñar otro empleo, cargo o comisión públicos.
