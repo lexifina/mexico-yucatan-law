@@ -1,0 +1,4 @@
+D.O. 30 DE SEPTIEMBRE DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO 415/2021 POR EL QUE SE MODIFICA EL CÓDIGO DE FAMILIA PARA EL ESTADO DE YUCATÁN, EN MATERIA DE ASIGNACIÓN PREFERENTE DE LA PATRIA POTESTAD DE MENORES EN CASO DE HOMICIDIO O FEMINICIDIO ENTRE QUIENES LA COMPARTAN".]
+Artículo único. Entrada en vigor
+Este decreto entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
