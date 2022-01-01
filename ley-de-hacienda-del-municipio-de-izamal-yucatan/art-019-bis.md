@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 31 DE DICIEMBRE DE 2021)
+Artículo 19 Bis.- Cuando el contribuyente pague, en una sola exhibición, el total de las contribuciones o de los créditos fiscales omitidos debidamente actualizados, en forma espontánea, sin mediar notificación alguna por parte de las autoridades fiscales, los recargos no podrán exceder de un tanto igual, al importe de la contribución omitida actualizada.

@@ -5,5 +5,6 @@ II.- Resultado de visita de verificación voluntaria.
 III.- Por capacitación
 IV.- Aprobaciones y/o Dictámenes
 Es objeto del derecho por los servicios que presta por servicios de protección civil del municipio, la entrega de los resultados obtenidos de los estudios, dictámenes, que los particulares o dependencias públicas puedan ejercer la actividad de asesoría, capacitación, evaluación, elaboración de programas internos de protección civil, de continuidad de operaciones y estudios de vulnerabilidad y riesgos en materia de protección civil, deberán contar con el registro expedido por la autoridad competente de protección civil.
-CAPÍTULO III
-Contribuciones Especiales
+(ADICIONADA CON EL ARTÍCULO QUE LA INTEGRA, D.O. 31 DE DICIEMBRE DE 2021)
+Sección Décima Quinta
+De los derechos de saneamiento ambiental que realice el municipio

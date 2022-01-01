@@ -1,0 +1,11 @@
+(ADICIONADO, D.O. 31 DE DICIEMBRE DE 2021)
+Artículo 128 Sexies.- No se pagarán los derechos por los servicios previstos en esta sección, en los siguientes casos:
+I.- Anuncios y propaganda de carácter político, los cuales se regirán conforme a la legislación general y estatal en materia electoral; y los convenios correspondientes.
+II.- Periódicos en tableros sobre edificios que estén ocupados por su misma casa editora.
+III.- Programas o anuncios de espectáculos o diversiones públicas fijadas en tableros, cuya superficie en conjunto no exceda de dos metros cuadrados, adosados precisamente en los edificios, en que se presente el espectáculo.
+IV.- Anuncios referentes a cultos religiosos, cuando estén sobre tableros en las puertas de los templos o en lugares específicamente diseñados para este efecto.
+V.- Adornos navideños, anuncios y adornos para fiestas cívicas nacionales o para eventos oficiales.
+VI.- Anuncios de eventos culturales o educativos organizados por instituciones que no persigan propósitos de lucro.
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, D.O. 31 DE DICIEMBRE DE 2021)
+Sección Décima Quinta
+Derechos por corralón y grúa

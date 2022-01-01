@@ -1,4 +1,4 @@
-LEY DE HACIENDA DEL MUNICIPIO DE TIZIMIN, YUCATÁN
+LEY DE HACIENDA DEL MUNICIPIO DE TIZIMÍN, YUCATÁN
 Ley publicada en el Suplemento al Diario Oficial del Estado de Yucatán, el jueves 28 de diciembre de 2006.
 GOBIERNO DEL ESTADO
 PODER EJECUTIVO

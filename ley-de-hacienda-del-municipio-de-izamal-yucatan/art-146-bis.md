@@ -1,0 +1,11 @@
+(ADICIONADO, D.O. 31 DE DICIEMBRE DE 2021)
+Artículo 146 Bis. Los aprovechamientos que percibirá el ayuntamiento serán los siguientes:
+I.- Recargos.
+II.- Gastos de ejecución e indemnizaciones
+III.- Multas por infracciones a las leyes y reglamentos municipales y otros ordenamientos aplicables.
+IV.- Multas federales no fiscales.
+V.- Multas por infracciones previstas en el Reglamento de la Ley de Transporte del Estado de Yucatán.
+VI.- Honorarios por notificación.
+VII.- Aprovechamientos diversos.
+Capítulo VI
+Participaciones y Aportaciones
