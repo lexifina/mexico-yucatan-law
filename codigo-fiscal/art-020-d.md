@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 30 DE DICIEMBRE DE 2021)
+Artículo 20-D. Lo previsto en los artículos 20-A, 20-B y 20-C no será aplicable a los avalúos que se realicen para la determinación del valor de los bienes objeto de la garantía del interés fiscal, así como para la determinación de su valor en el procedimiento administrativo de ejecución realizado por las autoridades fiscales en términos de este código y demás disposiciones legales aplicables.

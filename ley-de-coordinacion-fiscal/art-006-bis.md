@@ -4,4 +4,5 @@ I.- La cantidad establecida en el artículo 5, numeral 5, inciso c), se distribu
 II.- Para efectos de la distribución de la cantidad establecida en el artículo 5, numeral 8, de esta ley, se participará a cada municipio el 100% de la recaudación que se obtenga del impuesto sobre la renta, una vez descontadas las devoluciones por dicho concepto, correspondiente al salario del personal que preste o desempeñe un servicio personal subordinado en el municipio de que se trate, siempre que el salario sea efectivamente pagado con cargo a sus participaciones y otros ingresos locales;
 III.- La cantidad establecida en artículo 5, numeral 9, se distribuirá de la siguiente manera:
 a) El 70% se distribuirá entre los Municipios, en proporción directa al número de habitantes que cada uno tenga, conforme a la última información oficial publicada por el Instituto Nacional de Estadística, Geografía e Informática.
-b) El 30% se distribuirá con base en la proporción directa del Índice de Masa de Marginación de cada municipio, con respecto a la sumatoria total de los valores del Índice para todos los municipios del Estado.
+(REFORMADO, D.O. 30 DE DICIEMBRE DE 2021)
+b) El 30% se distribuirá en la misma proporción que el Componente de Marginación de cada Municipio.
