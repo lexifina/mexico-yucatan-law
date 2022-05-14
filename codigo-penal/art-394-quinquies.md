@@ -29,6 +29,8 @@ XI.- Que el sujeto activo haya obligado a la víctima a realizar o ejercer la pr
 XII.- Cuando el sujeto activo mediante engaños tenga comunicación con la víctima a través (sic) redes sociales o cualquier plataforma tecnológica, logrando obtener su confianza momento antes de privarla de la vida.
 (REFORMADA [N. DE E. ADICIONADA], D.O. 3 DE AGOSTO DE 2021)
 XIII.- La situación de vulnerabilidad en la que se encontraba la víctima al momento de la comisión del delito por el imputado.
+(ADICIONADA, D.O. 13 DE MAYO DE 2022)
+XIV.- Cuando la víctima se encuentre embarazada.
 (REFORMADO, D.O. 31 DE JULIO DE 2019)
 A quien cometa el delito de feminicidio se le impondrán de treinta y dos a cuarenta y cinco años de prisión y de mil quinientos a dos mil quinientos días- multa.
 (REFORMADO [N. DE E. ADICIONADO], D.O. 3 DE AGOSTO DE 2021)
@@ -41,5 +43,7 @@ Si la víctima fuera menor de dieciocho años, se impondrá una pena de prisión
 Además de las sanciones descritas en este artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
 (REFORMADO [N. DE E. ADICIONADO], D.O. 3 DE AGOSTO DE 2021)
 Quien intente dolosamente privar de la vida a una mujer por las razones de género establecidas en este artículo y no lo lograra por cualquier circunstancia, se le considerará como tentativa de feminicidio.
+(ADICIONADO, D.O. 13 DE MAYO DE 2022)
+Igualmente se considerará como tentativa de feminicidio a quien teniendo la intención de privar de la vida a una mujer embarazada, provoque el nacimiento prematuro del producto, alteraciones a su salud, ya sea de forma temporal o permanente; o su muerte.
 (REFORMADO, D.O. 19 DE JUNIO DE 2017)
 Las autoridades investigadoras competentes, cuando se encuentren ante un probable delito de feminicidio deberán aplicar el protocolo correspondiente a dicho delito; en caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
