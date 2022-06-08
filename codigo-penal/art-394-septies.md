@@ -1,0 +1,2 @@
+(REFORMADO [N. DE E. REUBICADO ANTES ARTÍCULO 394 SEXIES], D.O. 7 DE JUNIO DE 2022)
+ARTÍCULO 394 SEPTIES. Al servidor público que retarde, entorpezca por malicia o negligencia la procuración, administración o impartición de justicia, cuando se trate de la investigación de los delitos previstos en este capítulo, se le impondrán de tres a ocho años de prisión y de quinientos a mil quinientos días multa, además será destituido e inhabilitado de seis a diez años para desempeñar otro empleo, cargo o comisión públicos.
