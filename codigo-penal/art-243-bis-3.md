@@ -1,10 +1,14 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, D.O. 22 DE JUNIO DE 2018)
+(REFORMADA SU DENOMINACIÓN, D.O. 27 DE OCTUBRE DE 2022)
 CAPÍTULO V BIS
-DELITOS CONTRA LA IMAGEN PERSONAL
-(ADICIONADO, D.O. 22 DE JUNIO DE 2018)
-ARTÍCULO 243 BIS 3.- A quien hubiera obtenido con la anuencia de otra persona imágenes, textos o grabaciones de voz o audiovisuales de contenido erótico, sexual o pornográfico de aquella y las revele, publique, difunda o exhiba sin su consentimiento, a través de mensajes telefónicos, publicaciones en redes sociales, correo electrónico o por cualquier otro medio, se le impondrá de un año a cinco años de prisión y multa de doscientas a quinientas unidades de medida y actualización.
-Las penas y sanciones a que se refiere el párrafo anterior, se aumentarán hasta en una mitad cuando el sujeto activo sea el cónyuge, concubina o concubinario, o la persona que mantenga o haya mantenido una relación sentimental, afectiva o de confianza con la víctima, aún sin convivencia, o haya cometido la conducta con fines lucrativos.
-A quien cometa la conducta prevista en el párrafo primero, sin anuencia del sujeto pasivo y sin conocerlo, se le impondrá una pena de tres meses a un año de prisión y multa de cincuenta a doscientas unidades de medida y actualización.
-Las penas y sanciones previstas en el párrafo anterior de este artículo se aumentarán al triple cuando el sujeto activo tenga una relación de confianza, de amistad o de vecindad con la víctima o comparta el uso de espacios, educativos o laborales, culturales, deportivos o sociales comunes con ella y, con conocimiento de dichas circunstancias, cometa la conducta punible.
-Cuando el delito previsto en este artículo sea cometido contra un menor de dieciocho años, se estará a lo establecido en el artículo 211 de este código.
-Este delito se perseguirá por querella de la parte ofendida.
+VIOLACIÓN A LA INTIMIDAD SEXUAL
+(REFORMADO, D.O. 27 DE OCTUBRE DE 2022)
+ARTÍCULO 243 BIS 3.- Comete el delito de violación a la intimidad sexual la persona que divulgue, comparta, distribuya o publique imágenes, videos o audios de contenido íntimo sexual de una persona que tenga la mayoría de edad, sin su consentimiento, su aprobación o su autorización; así como a quien videograbe, audiograbe, fotografíe, imprima o elabore, imágenes, audios o videos con contenido íntimo sexual de una persona sin su consentimiento, sin su aprobación, o sin su autorización. A quien cometa este delito, se le impondrá una pena de tres a seis años de prisión y una multa de quinientas a mil Unidades de Medida y Actualización.
+Se impondrán las mismas sanciones previstas en el artículo anterior cuando las imágenes, videos o audios de contenido íntimo sexual que se divulguen, compartan, distribuyan o publiquen no correspondan con la persona que es señalada o identificada en los mismos.
+El mínimo y el máximo de la pena se aumentará hasta en una mitad:
+I. Cuando el delito sea cometido por el cónyuge, concubinario o concubina, pareja de hecho o por cualquier persona con la que la víctima tenga o haya tenido una relación sentimental, afectiva o de confianza.
+II. Cuando el delito sea cometido por un servidor público en ejercicio de sus funciones.
+III. Cuando se cometa contra una persona que no pueda comprender el significado del hecho o no tenga la capacidad para resistirlo.
+IV. Cuando se obtenga algún tipo de beneficio no lucrativo.
+V. Cuando se haga con fines lucrativos.
+VI. Cuando a consecuencia de los efectos o impactos del delito, la víctima atente contra su integridad o contra su propia vida.
+Cuando el delito previsto en este artículo sea cometido contra una persona menor de dieciocho años de edad, se estará a lo establecido en el artículo 211 de este código.
