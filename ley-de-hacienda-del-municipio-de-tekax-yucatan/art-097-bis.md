@@ -1,15 +1,5 @@
-(ADICIONADO, D.O. 29 DE ABRIL DE 2022)
-Artículo 97 Bis. Tarifas por el servicio de mercados
-Los derechos por servicios del mercado se causarán y pagarán de conformidad -con las siguientes tarifas:
-I.- Locatarios semifijos……………………$ 6.00 el metro por día
-II.- Locales comerciales de
-mercado……………………………………………………………$ 6.00 por día
-III.- Mesetas en el mercado:
-a) Carnes…………………………………………………………$ 8.00 por día
-b) Verduras…………………………………………………………$ 4.00 por día
-c) Otros……………………………………………………………$ 2.00 Por día
-IV. Puestos (ambulantes) en la vía pública:
-a) Pequeño (2m x 1)……………………………………$ 11.00 por día
-b) Mediano (3m)………………………………………………$ 17.00 por día
-c) Grande (10m x 1m)………………………………$ 27.00 por día
-d) Vendedores ambulantes con camioneta……………………$ 11.00 por día
+(REFORMADO, D.O. 30 DE DICIEMBRE DE 2022)
+Artículo 97 Bis. Concepto de cobro de piso de Bazares de comida y Pasajes
+Para efectos de esta sección. Se entenderá por Bazares de comida a los inmuebles edificados a la venta de alimentos en la calle 41 x 50 y 48, se entenderá de Pasaje al inmueble ubicado en la calle 55 x 44 x 46 s/n. Se pagarán derechos, por día, conforme a las siguientes tarifas:
+I. El uso o aprovechamiento de los locales de los Bazares de comida fuera del mercado municipal y de dominio público municipal: 1.45 UMA
+II. El uso o aprovechamiento de los locales del Pasaje de la 55 de dominio público municipal: 0.20 UMA

@@ -1,5 +1,5 @@
-(ADICIONADO, D.O. 27 DE DICIEMBRE DE 2019)
+(ADICIONADO [N. DE E. REFORMADO], D.O. 30 DE DICIEMBRE DE 2022)
 Artículo 163 Bis. Época de pago
-El pago de los derechos causados por los servicios relacionados con la emisión de los ejemplares y publicaciones de la Gaceta Municipal del Ayuntamiento, se realizará al momento de solicitar el servicio en las oficinas de la Tesorería municipal o donde se designe.
+El pago de los derechos causados por los materiales empleados en la Unidad de Transparencia se realizará en las oficinas de Tesorería o bien donde esta última lo designe.
 Capítulo IV
 Productos
