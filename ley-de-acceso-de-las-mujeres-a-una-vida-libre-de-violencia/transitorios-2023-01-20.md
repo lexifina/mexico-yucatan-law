@@ -1,0 +1,5 @@
+D.O. 20 DE ENERO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO 601/2023 POR EL QUE SE MODIFICA LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE YUCATÁN, EN MATERIA DE PROTOCOLOS DE ACTUACIÓN POR VIOLENCIA CONTRA LAS MUJERES EN EL ÁMBITO EDUCATIVO".]
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Diario Oficial del Gobierno del Estado.
+Artículo Segundo.- La Secretaría de Educación del Gobierno del Estado y la Secretaría de Investigación, Innovación y Educación Superior de Yucatán contarán con un plazo de 180 días hábiles a partir de la publicación del presente Decreto, para la elaboración e implementación del protocolo y de los grupos de Apoyo para Víctimas de Violencia contra las mujeres.
+Artículo Tercero.- La Secretaría de Educación del Gobierno del Estado y la Secretaría de Investigación, Innovación y Educación Superior de Yucatán, se ajustarán al presupuesto aprobado por esta Soberanía para el cumplimiento de los fines establecidos en este Decreto.
