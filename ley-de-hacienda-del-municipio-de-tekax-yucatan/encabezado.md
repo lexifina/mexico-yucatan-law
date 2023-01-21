@@ -1,5 +1,5 @@
-[N. DE E. PARA CONSULTAR LA VERSIÓN CORREGIDA DE ESTE ORDENAMIENTO, DE CONFORMIDAD CON LA FE DE ERRATAS PUBLICADA EL 18 DE ENERO DE 2023 EN EL D.O. DEL ESTADO DE YUCATÁN, SE RECOMIENDA ACUDIR AL TEXTO QUE SE VISUALIZA DENTRO DE LA CRONOLOGÍA CORRESPONDIENTE A DICHA FECHA, EN EL ÍNDICE RESPECTIVO DE SU HISTORIA LEGISLATIVA.]
 LEY DE HACIENDA DEL MUNICIPIO DE TEKAX DEL ESTADO DE YUCATÁN
+[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL DIARIO OFICIAL DEL 18 DE ENERO DE 2023.]
 Ley publicada en el Suplemento II del Diario Oficial del Estado de Yucatán, el sábado 29 de diciembre de 2018.
 Decreto 23/2018 por el que se emiten las leyes de Hacienda de los municipios de Motul, Kanasín, Peto, Tapakan, Tekax y Tzucacab, Yucatán
 María Dolores Fritz Sierra, secretaria general de Gobierno, encargada del Despacho del Gobernador, conforme a los artículos 56, fracción I, de la Constitución Política del Estado de Yucatán; y 18 del Código de la Administración Pública de Yucatán, y con fundamento en los artículos 38, 55, fracción II, y 60 de la Constitución Política del Estado de Yucatán; y 14, fracciones VII y IX, del Código de la Administración Pública de Yucatán, a sus habitantes hago saber que el H. Congreso del Estado de Yucatán se ha servido dirigirme el siguiente decreto:
