@@ -12,9 +12,11 @@ V.- El Tribunal de Justicia Administrativa del Estado de Yucatán;
 (REFORMADA, D.O. 21 DE ABRIL DE 2023)
 VI.- La Fiscalía Especializada en Combate a la Corrupción del Estado de Yucatán;
 (REFORMADA, D.O. 21 DE ABRIL DE 2023)
-VII.- La Agencia de Transporte de Yucatán, y
+VII.- La Agencia de Transporte de Yucatán;
+(REFORMADA, D.O. 21 DE ABRIL DE 2023)
+VIII.- La Fiscalía General del Estado de Yucatán, y
 (ADICIONADA, D.O. 21 DE ABRIL DE 2023)
-VIII.- La Fiscalía General del Estado de Yucatán.
+IX.- La Agencia de Inteligencia Patrimonial y Económica del Estado de Yucatán.
 Los organismos autónomos reconocidos por esta Constitución deberán enviar al Poder Ejecutivo del Estado su proyecto de Presupuesto de Egresos, a más tardar el 15 de octubre de cada año. Asimismo, rendirán informe de su cuenta pública en los términos que señale la ley en la materia.
 (REFORMADO, D.O. 20 DE JUNIO DE 2014)
 CAPÍTULO II
