@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 15 DE JUNIO DE 2023)
+Artículo 74 Bis. Servicios y programas
+La educación indígena se apoyará con los servicios y programas de extensión educativa que la autoridad correspondiente le proporcione de acuerdo con el contexto cultural del Estado, la cual, a su vez promoverá la participación conjunta de educandos, docentes, directivos, autoridades, organizaciones y personas de las comunidades indígenas o afromexicanas, en el desarrollo de los contenidos educativos y su implementación.
+La Autoridad educativa estatal procurará la implementación de programas para la producción, traducción y difusión de materiales y contenidos que se requieran para la impartición de la educación indígena en la entidad, mismos que deberán estar apegados a las características sociolingüísticas de la región, con la finalidad de garantizar el acceso, permanencia y egreso de los educandos.
