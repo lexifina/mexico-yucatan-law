@@ -25,7 +25,8 @@ Artículo décimo primero. Asuntos en trámite
 Los procedimientos y trámites que se iniciaron con anterioridad a la entrada en vigor de este decreto, continuarán, hasta su conclusión, regidos por las disposiciones en los (sic) cuales se fundamentaron.
 Artículo décimo segundo. Nombramiento
 La persona titular del Poder Ejecutivo tendrá hasta el 30 de noviembre de 2023 para remitir al Congreso la terna para la designación de la persona titular de la Fiscalía General del Estado.
+(REFORMADO, D.O. 28 DE JUNIO DE 2023)
 Artículo décimo tercero. Nombramiento
-El Congreso deberá expedir la convocatoria para la designación del titular del órgano de control interno de la Fiscalía General del Estado dentro de un plazo de noventa días naturales, contado a partir de la entrada en vigor de este decreto.
+El Congreso deberá expedir la convocatoria para la designación del titular del órgano de control interno de la Fiscalía General del Estado dentro de un plazo de ciento ochenta días naturales, contado a partir de la entrada en vigor de este decreto.
 Artículo décimo cuarto. Primer Informe del Fiscal
 Por única ocasión, la primera rendición del Informe anual de la Fiscalía General del Estado de Yucatán, a cargo de la persona titular de dicho órgano autónomo, se realizará en el mes de abril de 2025, y comprenderá el período que abarca del inicio de sus funciones como fiscal hasta el 31 de diciembre 2024.

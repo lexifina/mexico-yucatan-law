@@ -45,5 +45,7 @@ Además de las sanciones descritas en este artículo, el sujeto activo perderá 
 Quien intente dolosamente privar de la vida a una mujer por las razones de género establecidas en este artículo y no lo lograra por cualquier circunstancia, se le considerará como tentativa de feminicidio.
 (ADICIONADO, D.O. 13 DE MAYO DE 2022)
 Igualmente se considerará como tentativa de feminicidio a quien teniendo la intención de privar de la vida a una mujer embarazada, provoque el nacimiento prematuro del producto, alteraciones a su salud, ya sea de forma temporal o permanente; o su muerte.
+(ADICIONADO, D.O. 28 DE JUNIO DE 2023)
+La tentativa de delito de feminicidio se sancionará con pena de prisión de entre la mitad de la mínima y las dos terceras partes de la máxima de las sanciones previstas para el correspondiente delito consumado; además respecto de la sanción pecuniaria se estará conforme a lo dispuesto en el Capítulo IV del Título IV del Libro Primero de este Código.
 (REFORMADO, D.O. 19 DE JUNIO DE 2017)
 Las autoridades investigadoras competentes, cuando se encuentren ante un probable delito de feminicidio deberán aplicar el protocolo correspondiente a dicho delito; en caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
