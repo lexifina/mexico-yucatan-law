@@ -1,2 +1,2 @@
-(ADICIONADO, D.O. 17 DE AGOSTO DE 2011)
-Artículo 29 A.- El Síndico del Ayuntamiento entrante, levantará acta circunstanciada de la entrega-recepción, la cual deberá ser firmada por los que intervinieron y se proporcionará copia certificada a los integrantes del Ayuntamiento saliente que participaron.
+(REFORMADO, D.O. 28 DE SEPTIEMBRE DE 2023)
+Artículo 29 A.- Los actos de Entrega–Recepción se conducirán con estricto apego a los principios de legalidad, objetividad, certeza, honradez, imparcialidad, rendición de cuentas, eficacia, eficiencia, economía, integridad, transparencia, máxima publicidad, responsabilidad, probidad, profesionalismo y equidad.

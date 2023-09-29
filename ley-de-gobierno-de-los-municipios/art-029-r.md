@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 28 DE SEPTIEMBRE DE 2023)
+Artículo 29 R.- La entrega-recepción ordinaria se efectuará en un plazo no mayor a diez días hábiles posteriores a la separación del cargo de la persona servidora pública saliente, independientemente de que exista o esté por interponerse algún procedimiento ante cualquier instancia judicial, laboral o administrativa, que tenga como finalidad dirimir alguna controversia relacionada con la separación del cargo.

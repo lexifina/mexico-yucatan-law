@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 28 DE SEPTIEMBRE DE 2023)
+Artículo 29 J.- El acto de entrega-recepción ordinaria se podrá diferir en una sola ocasión, por un plazo que no exceda de diez días hábiles, contados a partir del día siguiente al señalado por el órgano interno de control para su realización, cuando alguno de los participantes no pueda asistir por causa debidamente justificada o se presente un estado de emergencia o fuerza mayor.

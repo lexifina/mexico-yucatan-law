@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 28 DE SEPTIEMBRE DE 2023)
+Artículo 29 O.- La persona titular del área administrativa al solicitar la participación del órgano de control interno al acto de entrega-recepción ordinaria, deberá registrar la fecha de baja de la persona servidora pública saliente en su registro físico o en el sistema de entrega-recepción, si se cuenta con este, la cual deberá coincidir con el de la incidencia de baja.

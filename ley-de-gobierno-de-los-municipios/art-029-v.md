@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 28 DE SEPTIEMBRE DE 2023)
+Artículo 29 V.- Se procederá a efectuar una entrega-recepción ordinaria en términos de lo dispuesto en esta sección, cuando la persona titular de la Presidencia Municipal a quien se le conceda u otorgue licencia para separarse de sus funciones conforme a lo dispuesto en la presente ley o por interrupción del ejercicio de sus funciones antes de concluir el periodo constitucional establecido.

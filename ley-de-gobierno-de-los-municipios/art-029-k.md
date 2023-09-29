@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 28 DE SEPTIEMBRE DE 2023)
+Artículo 29 K.- En la entrega-recepción ordinaria, las personas servidoras públicas salientes, entregarán su cargo a quienes las sustituyan en sus funciones e incluirán los asuntos de su competencia, documentos, información, recursos humanos, materiales y financieros que les hayan sido asignados y hubieren tenido directamente a su disposición para el ejercicio de sus atribuciones legales.
