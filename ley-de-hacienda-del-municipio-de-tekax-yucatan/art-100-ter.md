@@ -1,3 +1,0 @@
-(ADICIONADO, D.O. 27 DE DICIEMBRE DE 2019)
-Artículo 100 Ter. Si dentro del primer año de hecho un refrendo de temporalidad se solicita la perpetuidad de la fosa, se deducirá al importe de ésta la suma enterada por el refrendo.
-Las personas que poseen fosas a perpetuidad en los panteones municipales, podrán inhumar en ellas otros cadáveres, siempre que se haya vencido el término que señalan las Leyes y Reglamentos respectivos para la inhumación.
