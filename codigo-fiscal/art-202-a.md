@@ -1,3 +1,4 @@
+(DEROGADO SEGUNDO PÁRRAFO, D.O. 28 DE DICIEMBRE DE 2023)
 N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ARTÍCULO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (ADICIONADO, D.O. 26 DE DICIEMBRE DE 2014)
 Artículo 202-A. Para los efectos del primer párrafo del artículo anterior, la identificación del ejecutor debe hacerse constar en el acta que se levante con motivo de la diligencia, para lo cual se deberá incluir en dicha acta, lo siguiente:
