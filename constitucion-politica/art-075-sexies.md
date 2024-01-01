@@ -8,6 +8,8 @@ II. Contar con estudios de maestría o posgrado al día de su elección, expedid
 III. Acreditar tener experiencia comprobable en materia de transporte, de planeación o diseño de políticas públicas en entidades federativas o municipios o haber cursado diplomados o talleres en dichas materias.
 La persona titular de la Agencia de Transporte de Yucatán será designada mediante el siguiente procedimiento: la persona titular del Poder Ejecutivo someterá una terna a consideración del Congreso del estado, quien designará a quien deba ocupar el cargo, mediante el voto de las dos terceras partes de sus integrantes presentes en la sesión de que se trate. En caso de que no se alcance la votación requerida, la persona titular del Poder Ejecutivo someterá otra terna a la consideración del Congreso. En caso de que nuevamente no se alcance la votación requerida, ocupará el cargo la persona que designe la persona titular del Poder Ejecutivo, que deberá ser integrante de la segunda terna propuesta.
 La persona titular de la Agencia de Transporte de Yucatán no podrá tener otro empleo, cargo o comisión, con excepción de los no remunerados en actividades docentes, científicas, culturales, de investigación o de beneficencia. Tampoco podrá asumir un cargo público en las dependencias y entidades estatales ni en los órganos constitucionales autónomos.
+(ADICIONADO, D.O. 19 DE DICIEMBRE DE 2023)
+El presupuesto de la Agencia de Transporte de Yucatán no podrá ser disminuido respecto al del año inmediato anterior y se fijará anualmente.
 (ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, D.O. 21 DE ABRIL DE 2023)
 CAPÍTULO IX
 De la Agencia de Inteligencia Patrimonial y Económica del Estado de Yucatán
