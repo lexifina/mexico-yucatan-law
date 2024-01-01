@@ -13,6 +13,3 @@ c) La determinación de los mecanismos de suministro, intercambio, sistematizaci
 d) El establecimiento de bases y principios para la efectiva coordinación de las autoridades del estado y sus municipios en materia de fiscalización y control de los recursos públicos.
 e) La elaboración de un informe anual que contenga los avances y resultados del ejercicio de sus funciones y de la aplicación de políticas y programas en la materia.
 Derivado de este informe, podrá emitir recomendaciones no vinculantes a las autoridades, con el objeto de que adopten medidas dirigidas al fortalecimiento institucional para la prevención de faltas administrativas y hechos de corrupción, así como al mejoramiento de su desempeño y del control interno. Las autoridades destinatarias de las recomendaciones informarán al comité sobre la atención que brinden a estas, en los términos previstos en la ley.
-(REUBICADO [N. DE E. ANTES TÍTULO DÉCIMO], D.O. 9 DE SEPTIEMBRE DE 2005)
-TITULO UNDECIMO
-Disposiciones generales
