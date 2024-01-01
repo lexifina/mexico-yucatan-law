@@ -11,8 +11,12 @@ VIII.- Turismo;
 IX.- Protección al medio ambiente;
 X.- Planeación del Desarrollo Regional;
 XI.- Creación y Administración de Reservas Territoriales;
-XII.- Desarrollo Económico, en todas sus vertientes, y
-XIII.- Desarrollo Social.
+(REFORMADA, D.O. 29 DE SEPTIEMBRE DE 2023)
+XII.- Desarrollo Económico, en todas sus vertientes;
+(REFORMADA, D.O. 29 DE SEPTIEMBRE DE 2023)
+XIII.- Desarrollo Social, y
+(ADICIONADA, D.O. 29 DE SEPTIEMBRE DE 2023)
+XIV.- Igualdad entre mujeres y hombres y acceso de las mujeres a una vida libre de violencia.
 Los municipios podrán celebrar convenios con el Ejecutivo del Estado, a fin de que éstos asuman alguna de las funciones o los servicios cuya responsabilidad sea originaria del Estado, trasladándose a favor del municipio los medios para su adecuada prestación así como la contraprestación a cargo de los usuarios del servicio o función de que se trate.
 (REUBICADO [N. DE E. ANTES TÍTULO OCTAVO], D.O. 9 DE SEPTIEMBRE DE 2005)
 TITULO NOVENO
