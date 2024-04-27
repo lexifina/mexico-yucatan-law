@@ -1,0 +1,10 @@
+LEY DE ADOPCIONES DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE YUCATÁN
+Ley publicada en el suplemento del Diario Oficial del Estado de Yucatán, el viernes 26 de abril de 2024.
+Decreto 746/2024 por el que se expide la Ley de Adopciones de Niñas, Niños y Adolescentes del Estado de Yucatán, se modifica el Código de Familia para el Estado de Yucatán y se deroga el artículo sexto transitorio de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Yucatán
+María Dolores Fritz Sierra, secretaria general de Gobierno, encargada del Despacho del Gobernador, conforme a los artículos 55, fracción II, 60 y 61, párrafo segundo, de la Constitución Política del Estado de Yucatán; 14, fracciones VIII y IX, y 18, del Código de la Administración Pública de Yucatán; con fundamento en los artículos 38, 55, fracción II, y 60 de la Constitución Política del Estado de Yucatán; y 14, fracciones VII y IX, del Código de la Administración Pública de Yucatán, a sus habitantes hago saber, que el H. Congreso del Estado de Yucatán se ha servido dirigirme el siguiente decreto:
+"EL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE YUCATÁN, CONFORME CON LO DISPUESTO EN LOS ARTÍCULOS 29 Y 30, FRACCIÓN V DE LA CONSTITUCIÓN POLÍTICA, 18 Y 28, FRACCIÓN XII DE LA LEY DE GOBIERNO DEL PODER LEGISLATIVO, 117, 118 Y 123 DEL REGLAMENTO DE LA LEY DE GOBIERNO DEL PODER LEGISLATIVO, TODOS DEL ESTADO DE YUCATÁN, EMITE LA SIGUIENTE,
+E X P O S I C I Ó N DE M O T I V O S
+[…]
+Con fundamento en los artículos 29 y 30, fracción V de la Constitución Política; artículos 18, 43, fracciones I y III y 44, fracción VIII de la Ley de Gobierno del Poder Legislativo y 71, fracción II del Reglamento de la Ley de Gobierno del Poder Legislativo, todos del Estado de Yucatán, sometemos a consideración del Pleno del H. Congreso del Estado de Yucatán, el siguiente proyecto de,
+D E C R E T O
+Que expide la Ley de Adopciones de Niñas, Niños y Adolescentes del Estado de Yucatán, modifica el Código de Familia para el Estado de Yucatán y deroga el artículo sexto transitorio de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Yucatán.

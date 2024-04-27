@@ -1,0 +1,2 @@
+Artículo segundo.
+[…]
