@@ -11,8 +11,7 @@ El Congreso del estado deberá armonizar las leyes secundarias relacionadas con 
 Quinto. Expedición del reglamento de la ley
 El gobernador, en un plazo no mayor de ciento ochenta días naturales, contado a partir de la entrada en vigor de este decreto, deberá expedir el Reglamento de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Yucatán.
 Hasta en tanto se emitan estas disposiciones continuará aplicándose el Reglamento de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Yucatán, publicado en el Diario Oficial del Gobierno del Estado de Yucatán el 10 de mayo de 2017, que se encuentra en vigor, en lo que no contravenga lo establecido en este decreto.
-Sexto. Régimen de vigencia especial
-El Acuerdo DIF 07/SO/2a /2013 por el que se expiden los Lineamientos sobre el Trámite de Adopción ante la Procuraduría de la Defensa del Menor y la Familia, publicado en el Diario Oficial del Gobierno del Estado de Yucatán el 16 de abril de 2014, dejará de ser aplicable a partir de que se emita el Reglamento de la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Yucatán.
+Sexto. (DEROGADO, D.O. 26 DE ABRIL DE 2024)
 Séptimo. Expedición del programa
 El gobernador deberá expedir el Programa Especial de Protección de Niñas, Niños y Adolescentes dentro de un plazo de ciento ochenta días naturales contado a partir de la entrada en vigor de este decreto.
 El gobernador podrá prescindir de la expedición de este programa siempre que los elementos que señala este decreto estén incluidos en un programa de mediano plazo, de protección de niñas, niños y adolescentes.
