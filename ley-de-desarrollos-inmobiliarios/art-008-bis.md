@@ -1,0 +1,5 @@
+(ADICIONADO, D.O. 3 DE ENERO DE 2024)
+Artículo 8 Bis.- Los desarrollos inmobiliarios privados, de acuerdo con sus características de edificación, podrán ser:
+I. Verticales: aquellos edificados en varios niveles en un terreno común, con unidades de propiedad exclusiva y derechos de copropiedad sobre el suelo y demás elementos y partes comunes del inmueble para su uso y disfrute.
+II. Horizontales: aquellos que se edifican de manera horizontal donde el condómino tiene derecho de uso exclusivo de parte de un terreno y es propietario de la edificación establecida en el mismo, pudiendo compartir o no su estructura y medianería, siendo titular de un derecho de copropiedad para el uso y disfrute de las áreas del terreno, construcciones e instalaciones destinadas al uso común.
+III. Mixtos: aquellos formados por desarrollos inmobiliarios privados verticales y horizontales, que pueden estar constituidos en grupos de unidades de propiedad exclusiva como: edificios, cuerpos, torres, manzanas, secciones o zonas.

@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 3 DE ENERO DE 2024)
+Artículo 26 Bis.- Las acciones urbanísticas que requieran de obras de urbanización y construcción de vivienda de manera simultánea, podrán obtener de la autoridad municipal competente sus respectivas autorizaciones y licencias, siempre y cuando estén consideradas dentro de los proyectos del desarrollo inmobiliario para las áreas y predios donde se proyecte realizar dichas obras.
