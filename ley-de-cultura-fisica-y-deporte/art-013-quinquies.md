@@ -12,6 +12,7 @@ IX. Verificar que las asociaciones y sociedades deportivas estatales consideren 
 X. Asesorar a las asociaciones y sociedades deportivas estatales en la creación y modificación de sus estructuras orgánicas, así como en la elaboración de sus estatutos, reglamentos o códigos de conducta, para que no contravengan lo dispuesto en la ley general, esta ley y su reglamento;
 XI. Desarrollar, en coordinación con los municipios y las asociaciones y sociedades deportivas estatales, políticas, estrategias y acciones para la prevención y atención del dopaje y la violencia en el deporte;
 XII. Promover la formación, capacitación y certificación de directivos, deportistas, entrenadores, árbitros, jueces y personal técnico relacionado con la cultura física y el deporte;
-XIII. Fomentar la construcción, la conservación, el mejoramiento y el uso de instalaciones destinadas a la cultura física y el deporte;
+(REFORMADA, D.O. 26 DE JUNIO DE 2024)
+XIII. Fomentar la construcción, la conservación, el mejoramiento y el uso de instalaciones destinadas a la cultura física y el deporte, así como al deporte adaptado.
 XIV. Impulsar, en coordinación con instituciones de los sectores público, privado y social, la elaboración de estudios e investigaciones sobre cultura física y deporte, así como ciencias y técnicas aplicables, y
 XV. Colaborar con la Secretaría de Educación en el desempeño de las atribuciones que, en términos de las disposiciones legales y normativas aplicables, le correspondan en materia de cultura física y deporte.
