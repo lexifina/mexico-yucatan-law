@@ -19,6 +19,6 @@ El presupuesto de la Agencia de Inteligencia Patrimonial y Económica del Estado
 La Agencia de Inteligencia Patrimonial y Económica del Estado de Yucatán contará con una secretaría técnica, cuya persona titular se encargará de brindar apoyo y asesoría técnica a la persona titular de la agencia, para la resolución de los asuntos de su competencia, en términos de lo que establezca su ley orgánica.
 (ADICIONADO, D.O. 9 DE OCTUBRE DE 2023)
 La persona Titular de la Secretaría Técnica de la Agencia de Inteligencia Patrimonial y Económica del Estado de Yucatán, será designada por el Congreso del Estado y durará en el cargo quince años, contados a partir de la fecha en la que rinda el compromiso constitucional respectivo, al término del cual no podrá ser ratificada para un segundo período. Para ocupar el cargo, deberá cumplir con los requisitos y el procedimiento que establezca la Ley Orgánica de la Agencia de Inteligencia Patrimonial y Económica del Estado de Yucatán.
-(REUBICADO [N. DE E. ANTES TÍTULO SÉPTIMO], D.O. 9 DE SEPTIEMBRE DE 2005)
-TITULO OCTAVO
-De los Municipios del Estado
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, D.O. 27 DE JUNIO DE 2024)
+CAPITULO X
+Del Centro de Innovación Tecnológica de Yucatán

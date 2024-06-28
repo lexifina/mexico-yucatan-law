@@ -16,8 +16,12 @@ XI.- Creación y Administración de Reservas Territoriales;
 XII.- Desarrollo Económico, en todas sus vertientes;
 (REFORMADA, D.O. 1 DE ABRIL DE 2024)
 XIII.- Desarrollo Social;
-(ADICIONADA [N. DE E. REFORMADA], D.O. 1 DE ABRIL DE 2024)
-XIV.- Asentamientos humanos, ordenamiento territorial y desarrollo urbano;
+[N. DE E. DEL ANÁLISIS SE ADVIERTE QUE CON LA MODIFICACIÓN PUBLICADA EN EL D.O. DE 27 DE JUNIO DE 2024, SE REGRESA EL TEXTO DE LA PRESENTE FRACCIÓN AL DE LA ADICIÓN DE FECHA 29 DE SEPTIEMBRE DE 2023.]
+(ADICIONADA, D.O. 29 DE SEPTIEMBRE DE 2023)
+XIV.- Igualdad entre mujeres y hombres y acceso de las mujeres a una vida libre de violencia.
+[N. DE E. DEL ANÁLISIS SE ADVIERTE QUE EL CONTENIDO DE LA PRESENTE FRACCIÓN ES DE LA ANTERIOR FRACCIÓN XIV DE FECHA 1 DE ABRIL DE 2024.]
+(REFORMADA [N. DE E. ADICIONADA], D.O. 27 DE JUNIO DE 2024)
+XIV bis.- Asentamientos humanos, ordenamiento territorial y desarrollo urbano;
 (ADICIONADA, D.O. 1 DE ABRIL DE 2024)
 XV.- Movilidad y seguridad vial, y
 (ADICIONADA, D.O. 1 DE ABRIL DE 2024)
