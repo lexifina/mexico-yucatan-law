@@ -1,0 +1,12 @@
+D.O. 23 DE JULIO DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO 794/2024 POR EL QUE SE MODIFICA LA LEY DE EDUCACIÓN DEL ESTADO DE YUCATÁN, EN MATERIA DE FORTALECIMIENTO DE LA EDUCACIÓN".]
+Entrada en vigor
+Artículo primero. Este decreto entrará en vigor el día siguiente al de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+Adecuación normativa
+Artículo segundo. La Secretaría de Investigación, Innovación y Educación Superior deberá emitir y adecuar los acuerdos, lineamientos y demás disposiciones de carácter general conforme a lo establecido en este decreto, en un plazo no mayor a noventa días naturales, contado a partir de su entrada en vigor.
+Reconocimiento a la gestión institucional y excelencia educativa
+Artículo tercero. Los particulares que impartan educación superior con reconocimiento de validez oficial de estudios que decidan solicitar la obtención del reconocimiento al que se refiere el artículo 158 de este decreto, estarán a lo siguiente:
+I. La Secretaría de Investigación, Innovación y Educación Superior, en un plazo no mayor de ciento veinte días contados a partir de la emisión de los lineamientos respectivos para la educación impartida por particulares, emitirá una convocatoria para recibir solicitudes de las instituciones de educación superior con reconocimiento de validez oficial de estudios que deseen obtener un reconocimiento a la gestión institucional y excelencia educativa con el cumplimiento de los requisitos que se determinen conforme a las disposiciones legales y normativas aplicables.
+II. Recibidas las solicitudes, la Secretaría de Investigación, Innovación y Educación Superior, en un plazo no mayor de noventa días resolverá sobre el otorgamiento del reconocimiento a la gestión institucional y excelencia educativa.
+Los particulares podrán solicitar el reconocimiento al que se refiere el artículo 158 de este decreto cuando así lo decidan y conforme a lo establecido en este decreto y demás disposiciones aplicables, con independencia de la convocatoria que se emita en los términos de esta disposición transitoria.
+En la primera solicitud del particular para que se le otorgue el reconocimiento a la gestión institucional y excelencia educativa, la Secretaría de Investigación, Innovación y Educación Superior observará que no hayan sido sancionados por las autoridades educativas correspondientes en los últimos cinco años anteriores a la fecha de solicitud del reconocimiento.
