@@ -39,8 +39,8 @@ Las penas previstas se incrementarán hasta en una tercera parte en su mínimo y
 Si entre el sujeto activo y la víctima existió una relación de parentesco por consanguinidad en línea recta, sin limitación de grado, o colateral hasta el cuarto grado o por afinidad hasta el cuarto grado; laboral, docente, sentimental o cualquier otra que implique confianza, subordinación o superioridad, se impondrá una pena de prisión de cincuenta a sesenta y cinco años y de mil a mil quinientos días multa.
 (REFORMADO [N. DE E. ADICIONADO], D.O. 3 DE AGOSTO DE 2021)
 Si la víctima fuera menor de dieciocho años, se impondrá una pena de prisión de cincuenta a sesenta años, y de dos mil a tres mil días-multa.
-(REFORMADO, D.O. 1 DE ABRIL DE 2014)
-Además de las sanciones descritas en este artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
+(REFORMADO, D.O. 31 DE JULIO DE 2024)
+Además de las sanciones descritas en este artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio. Asimismo, en el caso de que tenga hijas o hijos con la víctima, el sujeto activo en su caso, perderá sobre ellas o ellos los derechos de familia correspondientes a la patria potestad, tutela, guarda y custodia, régimen de visitas y convivencias, y el derecho de alimentos que, en su caso, le correspondiere; lo mismo aplicará en caso de tentativa. Operará la suspensión de la patria potestad desde el momento del auto de vinculación a proceso por el delito de feminicidio o su tentativa en contra de la madre de las niñas, niños o adolescentes sujetos a la patria potestad.
 (REFORMADO [N. DE E. ADICIONADO], D.O. 3 DE AGOSTO DE 2021)
 Quien intente dolosamente privar de la vida a una mujer por las razones de género establecidas en este artículo y no lo lograra por cualquier circunstancia, se le considerará como tentativa de feminicidio.
 (ADICIONADO, D.O. 13 DE MAYO DE 2022)
