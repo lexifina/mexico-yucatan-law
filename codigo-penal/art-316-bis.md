@@ -1,2 +1,4 @@
 (ADICIONADO, D.O. 6 DE MARZO DE 2020)
 ARTÍCULO 316 BIS. A quien le conste de la comisión del delito de abuso sexual, violación, violación equiparada, acoso sexual y estupro, y no acuda a la autoridad competente para denunciar el hecho, se le impondrá una pena de uno a cinco años de prisión y de 100 a 200 días-multa.
+(REFORMADO [N. DE E. ADICIONADO], D.O. 5 DE AGOSTO DE 2024)
+Si quien conociere de la comisión de alguno de los delitos señalados en el párrafo anterior fuere parte de alguna institución educativa de cualquier nivel y no acuda a la autoridad competente, se impondrá pena de tres a seis años de prisión y de 250 a 500 días-multa. Sí quien tuviera conocimiento de la comisión de los delitos referidos fuese una autoridad escolar, las penas aumentarían en una tercera parte. Sí además, existiera entre éste y quien cometiera los delitos señalados una relación de parentesco hasta el cuarto grado, las penas aumentarán en dos terceras partes.
