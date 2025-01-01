@@ -1,0 +1,6 @@
+(ADICIONADO, D.O. 30 DE DICIEMBRE DE 2024)
+Artículo 147 Bis. Los Comerciantes en vía pública con puestos semifijos, tianguistas y vendedores ambulantes, podrán ocupar una superficie máxima que establezca la autoridad correspondiente en modalidades de tianguis, mercado sobre ruedas y bazares, siempre que cuenten con permiso vigente, expedido por las (sic) Dirección de Finanzas y Tesorería Municipal, para llevar a cabo actividades comerciales de cualquier tipo o concesión otorgada por autoridad competente, y pagarán los aprovechamientos por el uso o explotación de las vías y áreas públicas, cuyas cuotas serán por día.
+TITULO OCTAVO
+PARTICIPACIONES Y APORTACIONES
+CAPÍTULO ÚNICO
+Participaciones Federales, Estatales y Aportaciones

@@ -1,0 +1,5 @@
+(ADICIONADO, D.O. 30 DE DICIEMBRE DE 2024)
+Artículo 145 Bis.- Los aprovechamientos son los ingresos que percibe el ayuntamiento por funciones de derecho público distintos de las contribuciones, participaciones, aportaciones federales que se reciban de acuerdo con las normas del Sistema Nacional de Coordinación Fiscal, de los ingresos derivados de financiamientos y de los que obtengan las entidades paramunicipales.
+Los recargos, las multas, las indemnizaciones y los gastos de ejecución derivados de los aprovechamientos son accesorios de estos y participan de su naturaleza.
+Capítulo V
+Aprovechamientos

@@ -1,3 +1,2 @@
-(ADICIONADO, D.O. 23 DE DICIEMBRE DE 2020)
-Artículo 48 bis.- El Impuesto Predial, al momento de su determinación, no podrá exceder de un 5% del que haya correspondido durante el Ejercicio Fiscal anterior para los predios cuyo valor catastral sea menor o igual a $ 350,000.00 y para los predios cuyo valor catastral sea mayor a $350,000.00, el mismo no podrá exceder de un 10 % del que haya correspondido durante el ejercicio fiscal anterior. El comparativo se hará con base en el impuesto principal, sin tomar en consideración bonificaciones, exenciones, reducciones, estímulos o accesorios legales.
+Artículo 48 bis.- (DEROGADO, D.O. 30 DE DICIEMBRE DE 2024)
 EXENCIONES
