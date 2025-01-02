@@ -1,2 +1,2 @@
-(ADICIONADO, D.O. 30 DE DICIEMBRE DE 2016) (F. DE E., D.O. 25 DE ENERO DE 2017)
-ARTÍCULO 144 A.- Son sujetos de los derechos establecidos en esta sección las personas físicas o morales que soliciten, cualquiera de los servicios a que se refiere esta sección.
+(REFORMADO, D.O. 30 DE DICIEMBRE DE 2024)
+ARTÍCULO 144 A.- Son sujetos de los derechos establecidos en esta sección las personas físicas o morales que soliciten, cualquiera de los servicios a que se refiere esta sección y/o a quienes se les haya proporcionado el servicio de verificación de la conservación y mantenimiento de (sic) Torre de comunicación de una estructura monopolar para colocación de antena celular, de una base de concreto o adición de cualquier equipo de telecomunicación sobre una torre de alta tensión o sobre infraestructura existente.

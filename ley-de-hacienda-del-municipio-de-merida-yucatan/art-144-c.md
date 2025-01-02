@@ -35,5 +35,19 @@ d) Por evento con aforo de 1,000 y hasta 4,999 personas25 U.M.A.
 e) Por evento con aforo de 5,000 y hasta 9,999 personas50 U.M.A.
 (ADICIONADO, D.O. 29 DE DICIEMBRE DE 2021)
 f) Por evento con aforo a partir de 10,000 personas100 U.M.A.
-(ADICIONADO, D.O. 29 DE DICIEMBRE DE 2021)
-El pago de los derechos establecidos en la presente sección se pagará al momento de realizar la solicitud del servicio.
+(ADICIONADA, D.O. 30 DE DICIEMBRE DE 2024)
+VI.- Por los servicios destinados220U.M.A
+a verificar la conservación y
+el mantenimiento de cada
+Torre de comunicación de
+una estructura monopolar
+para colocación de antena
+celular, de una base de concreto
+o adición de cualquier equipo
+de telecomunicación sobre una
+torre de alta tensión o sobre
+infraestructura existente, por año,
+con vencimiento cada
+mes de abril.
+(REFORMADO, D.O. 30 DE DICIEMBRE DE 2024)
+El pago de los derechos establecidos en la presente sección se pagará al momento de realizar la solicitud del servicio, a excepción de lo establecido en la fracción VI de este artículo.
