@@ -3,11 +3,13 @@ D.O. 3 DE ENERO DE 2024.
 Entrada en vigor
 Artículo primero. Este decreto entrará en vigor a los ciento veinte días naturales siguientes al día de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
 Excepciones de la vigencia
-Artículo segundo. Se exceptúa de la entrada en vigor las disposiciones legales contenidas en este decreto que se refieran a la Procuraduría de Justicia Ambiental y Urbana del Estado de Yucatán, que entrará en vigor en un plazo de trescientos sesenta y cinco días naturales posteriores a la entrada en vigor del decreto y la reforma a la Ley de Desarrollos Inmobiliarios del Estado de Yucatán, que entrará en vigor en un plazo de ciento ochenta días naturales, en tanto se publica la ley reglamentaria que le corresponde.
+(REFORMADO PRIMER PÁRRAFO, D.O. 17 DE ABRIL DE 2025)
+Artículo segundo. Se exceptúan de la entrada en vigor las disposiciones legales contenidas en este decreto que se refieran a las atribuciones, facultades y obligaciones de la Procuraduría de Justicia Ambiental y Urbana del Estado de Yucatán, las cuáles entrarán en vigor el día 20 de abril del 2026, para tal efecto, el Poder Ejecutivo del Estado deberá tomar las previsiones presupuestales correspondientes.
 Se exceptúan las disposiciones legales contenidas en este decreto que hagan referencia a la emisión de la factibilidad urbana-ambiental a cargo del Instituto de Movilidad y Desarrollo Urbano Territorial, que entrarán en vigor en un plazo de noventa días naturales, contado a partir de la entrada en vigor de este mismo decreto. Entre tanto, la Secretaría de Desarrollo Sustentable seguirá siendo la autoridad competente para recibir las solicitudes relacionadas con la factibilidad urbana-ambiental, así como para tramitarlas, substanciarlas y resolverlas, de conformidad con el artículo décimo quinto.
 De igual manera, se exceptúa de la entrada en vigor lo dispuesto en el artículo 5, fracción I, inciso b), numeral 3 de este decreto, referente al Padrón de Asesores Inmobiliarios, que entrará en vigor al momento en que lo hagan las reformas legales que lo regulen.
 Obligación normativa
-Artículo tercero. El Congreso del Estado de Yucatán deberá expedir las leyes correspondientes y realizar las modificaciones necesarias a la legislación secundaria, para armonizarla a las disposiciones de este decreto, en un plazo de ciento ochenta días naturales contado a partir de su entrada en vigor.
+(REFORMADO, D.O. 17 DE ABRIL DE 2025)
+Artículo tercero. El Congreso del Estado de Yucatán deberá realizar las adecuaciones normativas necesarias a la legislación secundaria, para armonizarla a las disposiciones contenidas en este decreto.
 Obligación normativa
 Artículo cuarto. El Poder Ejecutivo del estado, en un plazo máximo de ciento ochenta días naturales, contado a partir de la entrada en vigor de este decreto, deberá expedir o modificar las disposiciones normativas y reglamentarias que fuesen necesarias para armonizar el marco jurídico estatal con las disposiciones contenidas en este decreto.
 Obligación normativa
