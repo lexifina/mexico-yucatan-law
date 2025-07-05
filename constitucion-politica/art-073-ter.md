@@ -17,8 +17,7 @@ VII.- La Agencia de Transporte de Yucatán;
 VIII.- La Fiscalía General del Estado de Yucatán;
 (REFORMADA, D.O. 27 DE JUNIO DE 2024)
 IX.- La Agencia de Inteligencia Patrimonial y Económica del Estado de Yucatán, y
-(ADICIONADA, D.O. 27 DE JUNIO DE 2024)
-X.- El Centro de Innovación Tecnológica de Yucatán.
+X. (DEROGADA, D.O. 4 DE JULIO DE 2025)
 Los organismos autónomos reconocidos por esta Constitución deberán enviar al Poder Ejecutivo del Estado su proyecto de Presupuesto de Egresos, a más tardar el 15 de octubre de cada año. Asimismo, rendirán informe de su cuenta pública en los términos que señale la ley en la materia.
 (REFORMADO, D.O. 20 DE JUNIO DE 2014)
 CAPÍTULO II

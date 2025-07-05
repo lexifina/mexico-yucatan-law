@@ -28,13 +28,6 @@ III.- Investigar los actos u omisiones que impliquen alguna irregularidad o cond
 IV.- Promover y denunciar, derivado de sus investigaciones, las responsabilidades administrativas o penales que sean procedentes ante el Tribunal de Justicia Administrativa del Estado de Yucatán y la Fiscalía Especializada en Combate a la Corrupción, para la imposición de las sanciones que correspondan a los servidores públicos y a los particulares.
 (REFORMADO, D.O. 20 DE ABRIL DE 2016)
 El Congreso del estado designará al Auditor Superior del Estado por el voto de las dos terceras partes de sus miembros integrantes. La ley en la materia determinará el procedimiento para su designación. El Auditor Superior del Estado será electo para desempeñar su cargo por ocho años y podrá ser reelecto por una sola vez. Podrá ser removido, exclusivamente, por las causas graves que la ley señale, con la misma votación requerida para su nombramiento, o por las causas y conforme a los procedimientos previstos en el título décimo de esta Constitución.
-(REFORMADO, D.O. 13 DE MARZO DE 2020)
-Para ser titular de la Auditoría Superior del Estado se requiere cumplir, además de los requisitos establecidos en las fracciones I, IV, V, VI y VII del artículo 65 de esta Constitución, contar con título y cédula profesional, y acreditar, al menos, cinco años de experiencia en materia de control, auditoría financiera y de responsabilidad, los que señale la ley. Durante el ejercicio de su encargo no podrá formar parte de ningún partido político, ni desempeñar otro empleo, cargo o comisión, salvo los no remunerados en asociaciones científicas, docentes, artísticas o de beneficencia.
+(DEROGADO SÉPTIMO PÁRRAFO, D.O. 4 DE JULIO DE 2025)
 (REFORMADO, D.O. 20 DE ABRIL DE 2016)
 Los servidores públicos estatales y municipales, así como cualquier entidad, persona física o moral, pública o privada, fideicomiso, mandato o fondo, o cualquier otra figura jurídica, que reciban o ejerzan recursos públicos estatales o municipales deberán proporcionar la información, documentación y auxilios que soliciten la Auditoría Superior del Estado, de conformidad con los procedimientos establecidos en las leyes y sin perjuicio de la competencia de otras autoridades y de los derechos de los usuarios del sistema financiero. En caso de no proporcionar la información, los responsables serán sancionados en los términos que establezca la ley.
-(REFORMADO, D.O. 4 DE JULIO DE 1938)
-TITULO QUINTO
-Del Poder Ejecutivo
-(REFORMADO, D.O. 4 DE JULIO DE 1938)
-CAPITULO I
-Del Gobernador del Estado
