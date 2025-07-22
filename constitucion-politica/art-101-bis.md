@@ -3,8 +3,8 @@ Artículo 101 Bis.- El Sistema Estatal Anticorrupción es la instancia de coordi
 (ADICIONADO, D.O. 13 DE MARZO DE 2020)
 El Sistema Estatal Anticorrupción tendrá como objeto realizar acciones y políticas públicas en la prevención, identificación y sanción de acuerdo a las leyes en la materia, a fin de disuadir y erradicar prácticas de corrupción en el sector público y privado.
 Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
-(REFORMADA, D.O. 4 DE JULIO DE 2025)
-I.- El sistema contará con un comité coordinador que estará integrado por los titulares de la Auditoría Superior del Estado; de la Fiscalía Especializada en Combate a la Corrupción; de la secretaría del Ejecutivo estatal responsable del control interno; por el presidente del Tribunal de Justicia Administrativa del Estado de Yucatán; el presidente del Instituto Estatal de Transparencia, Acceso a la Información Pública y Protección de Datos Personales; un representante del Tribunal de Disciplina del Poder Judicial; así como por un representante del comité de participación ciudadana.
+(REFORMADA, D.O. 21 DE JULIO DE 2025)
+I.- El sistema contará con un comité coordinador que estará integrado por los titulares de la Auditoría Superior del Estado; de la Fiscalía Especializada en Combate a la Corrupción; de la secretaría del Ejecutivo estatal responsable del control interno; por el presidente del Tribunal de Justicia Administrativa del Estado de Yucatán; un representante del Tribunal de Disciplina del Poder Judicial; así como por un representante del comité de participación ciudadana.
 II.- El comité de participación ciudadana deberá integrarse por cinco ciudadanos que se hayan destacado por su contribución a la transparencia, la rendición de cuentas o el combate a la corrupción y serán designados en los términos que establezca la ley.
 III.- Corresponderá al comité coordinador del sistema, en los términos que determine la ley:
 a) El establecimiento de mecanismos de coordinación entre el estado, los municipios y entre estos con la federación.

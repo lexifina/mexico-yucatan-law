@@ -1,8 +1,7 @@
 (ADICIONADO, D.O. 20 DE JUNIO DE 2014)
 Artículo 73 Ter.- Son organismos constitucionales autónomos del Estado de Yucatán:
 I.- La Comisión de Derechos Humanos del Estado de Yucatán;
-(REFORMADA, D.O. 20 DE ABRIL DE 2016)
-II.- El Instituto Estatal de Transparencia, Acceso a la Información Pública y Protección de Datos Personales;
+II.- (DEROGADA, D.O. 21 DE JULIO DE 2025)
 (REFORMADA, D.O. 20 DE ABRIL DE 2016)
 III.- El Instituto Electoral y de Participación Ciudadana de Yucatán;
 (REFORMADA, D.O. 14 DE NOVIEMBRE DE 2019)
