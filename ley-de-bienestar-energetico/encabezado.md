@@ -1,5 +1,5 @@
 LEY DE BIENESTAR ENERGÉTICO PARA EL ESTADO DE YUCATÁN
-Ley publicada en la Edición Vespertina del Diario oficial del Estado de Yucatán, el martes 3 de diciembre de 2024
+Ley publicada en la Edición Vespertina del Diario oficial del Estado de Yucatán, el martes 3 de diciembre de 2024.
 Decreto 18/2024 por el que se expide la Ley de Bienestar Energético para el Estado de Yucatán
 Joaquín Jesús Díaz Mena, Gobernador del Estado de Yucatán, con fundamento en los artículos 38, 55, fracción II, y 60 de la Constitución Política del Estado de Yucatán; y 14, fracciones VII y IX, del Código de la Administración Pública de Yucatán, a sus habitantes hago saber, que el H. Congreso del Estado de Yucatán se ha servido dirigirme el siguiente decreto:
 "EL CONGRESO DEL ESTADO LIBRE Y SOBERANO DE YUCATÁN, CONFORME CON LO DISPUESTO EN LOS ARTÍCULOS 29 Y 30, FRACCIÓN V DE LA CONSTITUCIÓN POLÍTICA, 18 Y 28, FRACCIÓN XII DE LA LEY DE GOBIERNO DEL PODER LEGISLATIVO, 117, 118 Y 123 DEL REGLAMENTO DE LA LEY DE GOBIERNO DEL PODER LEGISLATIVO, TODOS DEL ESTADO DE YUCATÁN, EMITE LA SIGUIENTE,
