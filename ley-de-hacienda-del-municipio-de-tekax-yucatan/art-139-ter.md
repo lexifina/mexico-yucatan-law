@@ -1,0 +1,1 @@
+Artículo 139 Ter. (DEROGADO, D.O. 31 DE DICIEMBRE DE 2025)

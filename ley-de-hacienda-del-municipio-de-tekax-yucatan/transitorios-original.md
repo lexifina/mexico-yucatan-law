@@ -1,6 +1,19 @@
-TRANSITORIOS
-PRIMERO. El presente Reglamento entrará en vigor al día siguiente de su publicación en el Periódico Oficial "Tierra y Libertad" órgano de difusión del Gobierno del Estado de Morelos.
-SEGUNDO. Se abroga el Reglamento Interior de la Junta Local de Conciliación y Arbitraje del estado de Morelos, publicado en el Periódico Oficial "Tierra y Libertad" número 4406 de fecha diez de agosto del 2005 y las demás disposiciones de rango igual o inferior que se opongan al presente Reglamento.
-TERCERO. Los Manuales de Organización y de Políticas y Procedimientos deberán emitirse en un plazo máximo de sesenta días naturales contados a partir de la emisión del presente Reglamento.
-Dado en el Salón de Plenos de la Junta Local de Conciliación y Arbitraje del estado de Morelos a los veintitrés días del mes de noviembre del año dos mil once.
-LIC. KARLA ALINE HERRERA ALONSO, Presidente de la Junta Local de Conciliación y Arbitraje, por mandato del Pleno de la Junta Local de Conciliación y Arbitraje, quien actúa por (sic) ante la fé pública de la Secretaria General LIC. ANA LAURA PASTRANA IBARRA. RÚBRICA.
+TRANSITORIOS:
+Primero. Entrada en vigor
+Este decreto entrará en vigor el 1 de enero de 2019, previa publicación en el diario oficial del estado.
+Segundo. Abrogación de la ley de hacienda
+A partir de la entrada en vigor de esta ley, quedará abroga la Ley de Hacienda del Municipio de Tekax, Yucatán publicada en el Diario Oficial del Gobierno del Estado de Yucatán mediante Decreto 135 de fecha 27 de diciembre de 2013.
+Tercero. Límite del importe del impuesto predial
+En el ejercicio fiscal 2019 el importe anual a pagar por los contribuyentes del impuesto predial, base valor catastral, no podrá exceder de un 30% del valor que le haya correspondido durante el ejercicio fiscal 2018. Este comparativo se efectuará solamente sobre el impuesto principal, sin tomar en consideración bonificaciones, exenciones, reducciones, estímulos o accesorios legales.
+TRANSITORIO:
+ARTÍCULO ÚNICO.- Este Decreto, entrará en vigor el día 01 de enero del año 2019, previo su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+DADO EN LA SEDE DEL RECINTO DEL PODER LEGISLATIVO EN LA CIUDAD DE MÉRIDA, YUCATÁN, ESTADOS UNIDOS MEXICANOS A LOS QUINCE DÍAS DEL MES DE DICIEMBRE DEL AÑO DOS MIL DIECIOCHO. PRESIDENTE DIPUTADO MARTÍN ENRIQUE CASTILLO RUZ.- SECRETARIA DIPUTADA LILA ROSA FRÍAS CASTILLO.- SECRETARIO DIPUTADO VÍCTOR MERARI SÁNCHEZ ROCA.- RÚBRICAS."
+Y, por tanto, mando se imprima, publique y circule para su conocimiento y debido cumplimiento.
+Se expide este decreto en la sede del Poder Ejecutivo, en Mérida, Yucatán, a 28 de diciembre de 2018.
+(RÚBRICA)
+Abog. María Dolores Fritz Sierra
+Secretaria general de Gobierno, encargada del Despacho del Gobernador, conforme a los artículos 56, fracción I, de la Constitución Política del Estado de Yucatán y 18 del Código de la Administración Pública de Yucatán
+(RÚBRICA)
+Lic. Olga Rosas Moya
+Secretaria de Administración y Finanzas, en funciones de secretaria general de Gobierno, conforme al artículo 18 del Código de la Administración Pública de Yucatán
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

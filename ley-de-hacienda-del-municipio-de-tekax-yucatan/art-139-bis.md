@@ -1,0 +1,1 @@
+Artículo 139 Bis. (DEROGADO, D.O. 31 DE DICIEMBRE DE 2025)
