@@ -1,5 +1,5 @@
-(ADICIONADO, D.O. 24 DE DICIEMBRE DE 2025)
-ARTÍCULO 242 BIS. Se incrementarán en una mitad los mínimos y máximos de las sanciones que se señalan en el artículo anterior cuando concurra cualquiera de las circunstancias siguientes:
+(ADICIONADO, D.O. 24 DE DICIEMBRE DE 2025) (F. DE E., D.O. 7 DE ENERO DE 2026)
+ARTÍCULO 240 QUÁTER. Se incrementarán en una mitad los mínimos y máximos de las sanciones que se señalan en el artículo anterior cuando concurra cualquiera de las circunstancias siguientes:
 I. Se cause daño físico o psicológico grave a la víctima o terceras personas que mantengan lazos de parentesco o amistad con la persona afectada.
 II. Se cometa la conducta con el uso de un arma, aun cuando no se haya causado daño físico.
 III. Cuando la conducta sea llevada a cabo en contra de una persona menor de edad.
