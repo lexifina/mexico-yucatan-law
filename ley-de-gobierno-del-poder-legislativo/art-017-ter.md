@@ -1,0 +1,3 @@
+(ADICIONADO, D.O. 13 DE ENERO DE 2026)
+Artículo 17 Ter.- Las minutas de reforma a la Constitución Política de los Estados Unidos Mexicanos remitidas por las Cámaras, de Diputados o, de Senadores del Honorable Congreso de la Unión en términos de lo previsto en el artículo 135 de la propia Constitución General, sin más trámite que su lectura, se someterán a discusión y votación del Pleno en la sesión que para tal fin determine la presidencia de la Mesa Directiva.
+Se exceptúa de lo anterior, cuando a consideración de la Presidencia de la Mesa Directiva y por la trascendencia de la reforma se deba turnar a la Comisión Permanente de Puntos Constitucionales y Gobernación para su dictaminación.

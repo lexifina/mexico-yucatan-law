@@ -20,5 +20,9 @@ XVII.- Implementar las acciones que acuerden los sistemas nacional y estatal ant
 XVIII.- Establecer mecanismos internos que prevengan actos u omisiones que pudieran constituir responsabilidades administrativas;
 XIX.- Promover la coordinación y cooperación con los Poderes Ejecutivo y Judicial, los órganos constitucionales autónomos, la federación y los municipios y demás entes públicos encargados de regímenes de contratación pública, a efecto de propiciar en lo procedente la homologación de políticas, normativas y criterios en materia de contrataciones públicas, que permita contar con un sistema de contrataciones públicas articulado a nivel estatal;
 XX.- Conducir, conforme a las bases de coordinación que establezcan los comités coordinadores de los Sistemas Nacional y Estatal Anticorrupción, acciones que propicien la integridad y la transparencia en la gestión pública, la rendición de cuentas y el acceso por parte de los particulares a la información que se genere en la Administración Pública estatal; así como promover dichas acciones hacia la sociedad;
-XXI.- Implementar las políticas de coordinación que promuevan los comités coordinadores de los Sistemas Nacional y Estatal Anticorrupción, en materia de combate a la corrupción en la Administración Pública estatal, y
-XXII.- Emitir el código de ética de los servidores públicos del estado y las reglas de Integridad para el ejercicio de la función pública.
+(REFORMADA, D.O. 13 DE ENERO DE 2026)
+XXI.- Implementar las políticas de coordinación que promuevan los comités coordinadores de los Sistemas Nacional y Estatal Anticorrupción, en materia de combate a la corrupción en el Poder Legislativo;
+(REFORMADA, D.O. 13 DE ENERO DE 2026)
+XXII.- Emitir el código de ética de los servidores públicos del Poder Legislativo y las reglas de Integridad para el ejercicio de la función pública, y
+(ADICIONADA, D.O. 13 DE ENERO DE 2026)
+XXIII.- Garantizar en el ámbito de su competencia como Autoridad Garante del Poder Legislativo, el ejercicio de los derechos de acceso a la información pública y la protección de datos personales conforme a los principios y bases establecidos en la Constitución Política de los Estados Unidos Mexicanos, así como lo previsto en la Ley General de Transparencia y Acceso a la Información Pública y la Ley de Transparencia y Acceso a la Información Pública del Estado de Yucatán.
