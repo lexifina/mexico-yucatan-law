@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 20 DE ENERO DE 2026)
+Artículo 12 Bis.- Para establecer las categorías geográficas previstas en el artículo 12 de esta ley, sin perjuicio de la autonomía municipal para su organización interna, los municipios deberán solicitar la declaratoria correspondiente al Congreso del Estado. Una vez realizada dicha declaratoria, ésta se comunicará al Ayuntamiento solicitante y al Poder Ejecutivo del Estado para su debida publicación en el Diario Oficial del Gobierno del Estado.
