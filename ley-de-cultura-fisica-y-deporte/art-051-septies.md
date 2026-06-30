@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 29 DE JUNIO DE 2026)
+Artículo 51 septies.- El IDEY establecerá los mecanismos de coordinación con los municipios, así como con las autoridades en materia de seguridad pública, protección civil, de salud y medio ambiente con la finalidad de prever y garantizar la integridad física tanto de la ciudadanía como de las personas que participen en los eventos deportivos en la vía pública.

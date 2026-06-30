@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 29 DE JUNIO DE 2026)
+Artículo 51 quinquies.- Se entenderán eventos deportivos en la vía pública aquellas actividades deportivas y recreativas que se realicen en espacios públicos, calles o avenidas, cuyo objeto sea fomentar la actividad física y la convivencia social; y cuya realización cumpla con los requisitos exigidos para su autorización por parte del IDEY en términos de lo previsto en el presente capítulo.

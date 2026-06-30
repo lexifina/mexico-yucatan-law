@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 29 DE JUNIO DE 2026)
+Artículo 51 octies.- El IDEY de manera interinstitucional deberá emitir un reglamento específico para la verificación de los eventos deportivos previstos en este capítulo. Este deberá contener los elementos mínimos respecto a los requisitos correspondientes, tales como el procedimiento para la obtención de permisos para los organizadores, protocolos de seguridad, protección civil, de cuidado al medio ambiente a seguir, entre otros.
