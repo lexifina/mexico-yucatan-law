@@ -1,0 +1,2 @@
+(ADICIONADO, D.O. 28 DE JULIO DE 2026)
+ARTÍCULO 306 BIS. Se equiparará al delito de chantaje quien, mediante el uso de software de inteligencia artificial, aprendizaje automático o herramientas de edición digital, genere, manipule o difunda imágenes, audios, videos, textos u otros contenidos falsos o alterados con el propósito de intimidar, amenazar o difamar a una persona, a fin de obligarla a realizar, tolerar o dejar de realizar algún acto en perjuicio de sus propios bienes jurídicos, o a entregarle dinero o cualquier otro objeto.
