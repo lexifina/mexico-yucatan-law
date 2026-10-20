@@ -1,0 +1,9 @@
+D.O. 19 DE OCTUBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 244/2026 POR EL QUE SE MODIFICA EL CÓDIGO PENAL DEL ESTADO DE YUCATÁN, EN MATERIA DE LESIONES COMO PARTE DE LAS POLÍTICAS PÚBLICAS EN FAVOR DE LAS PERSONAS QUE PADECEN VIH Y OTRAS ENFERMEDADES DE TRANSMISIÓN SEXUAL".]
+Entrada en vigor.
+Artículo primero. Este Decreto entrará en vigor al día siguiente de su publicación en el Diario Oficial del Gobierno del Estado de Yucatán.
+Asuntos en trámite
+Artículo segundo. Los procedimientos de investigación penal en materia del delito de peligro de contagio, iniciados antes de la entrada en vigor del presente Decreto, seguirán tramitándose hasta su conclusión conforme a las disposiciones aplicables antes de la vigencia del mismo.
+En los procesos pendientes de dictarse sentencia en primera y segunda instancia, a partir de la entrada en vigor de este Decreto, el órgano jurisdiccional, podrá efectuar la traslación del tipo en beneficio de la persona a sentenciar, de conformidad con la conducta delictiva de lesiones, sus modalidades o agravantes que se hayan acreditado.
+Tratándose de persona sentenciada, el juez de ejecución podrá considerar la revisión de las penas que se hayan impuesto para efectuar, en su caso, la traslación del tipo, siempre que la conducta, modalidades o agravantes proceda y resultase en su beneficio.
+Las disposiciones relativas al delito de peligro de contagio prevista en el Código Penal del Estado de Yucatán vigente hasta la entrada en vigor del presente Decreto, seguirá aplicándose por los hechos realizados durante su vigencia. Asimismo, dichos preceptos seguirán aplicándose a las personas procesadas o sentenciadas por dicho delito, sus modalidades, agravantes y sanciones, salvo lo dispuesto en el presente artículo en lo relativo a la traslación del tipo y adecuación de la pena.

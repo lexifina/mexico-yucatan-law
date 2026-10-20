@@ -1,0 +1,4 @@
+(ADICIONADO, D.O. 19 DE OCTUBRE DE 2026)
+ARTÍCULO 367 QUINQUIES. La persona que a sabiendas y con conocimiento de que padece alguna enfermedad grave, dolosamente la transmita, se le aplicarán de tres meses a tres años de prisión y una multa de cien a cuatrocientas Unidades de Medida y Actualización.
+Si la enfermedad causada o transmitida fuere incurable o provocare un daño grave permanente, se impondrá una sanción de cuatro a ocho años de prisión y una multa de doscientas a quinientas Unidades de Medida y Actualización; y si esta es mortal, la sanción podrá ser de nueve hasta de quince años de prisión y una multa de seiscientas a mil Unidades de Medida y Actualización.
+Este delito se perseguirá por querella de la víctima u ofendido, salvo que la víctima sea persona menor de edad, tenga alguna discapacidad o sea persona adulta mayor, en cuyo caso se perseguirá de oficio.
