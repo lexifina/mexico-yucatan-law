@@ -1,0 +1,11 @@
+{
+  "path": "mx-yuc",
+  "code": "MX-YUC",
+  "name": "Yucatán",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-yucatan-law",
+  "build": "built: constitution, codes and laws (104 ordenamientos, 704 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
